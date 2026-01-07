@@ -2,7 +2,7 @@
 
 People get OBE \ Astral Travel \ Psi capacities thru various means... trauma, dreaming, meditation, drugs, genetics, etc.
 
-- As discussed in Kathy O’Brien’s “Trance-Formation of America” yes @CaptainBoomer
+- As discussed in Kathy O’Brien’s “Trance-Formation of America” [@CaptainBoomer](https://twitter.com/CaptainBoomer/)
 
 As we are familiar in life, there are a range of moral qualities to people, and range of knowledge\experience\skills which are paired with a corresponding set of vulnerabilities
 
@@ -42,11 +42,56 @@ depending on your vulnerabilities, these can have various impacts from bad to wo
 
 ## Super Evil Ones:
 
-1. They will try to coerce you into doing evil, then hold it over your head to do more bad ideas
-2. They seduce people with psychic sex that's usually nasty gross and nothing like lovemaking
-3. They try to take credit for your thoughts or others actions as their work
-there are like 12 primary tactics (spread across sense-modalities),, but they are super unintelligent, all of it is running on some basic script, none of it is authentic
+1. Addicted to torture, both giving and receiving,
+2. Coerce individuals into doing evil, then hold it over your head to do more bad ideas.
+3. Pretend to be friends, and lure innocents into seemingly innocuous actions.
+4. They seduce people with psychic sex that's usually nasty gross and nothing like lovemaking.
+5. Apparently automated, very little genuine communication.
 
-...
+## Tactics and Techniques 
+- spread across sense-modalities
 
-Work in Progress
+### Tactics of Entrapment
+Most Commonly, they promise future pleasures or pain.
+
+- Fear
+- Guilt
+- Shame
+- Lust
+- Greed
+
+### Technique
+#### Direct
+- Touch (pleasure\pain)
+- Thought Injection
+- Feeling Injection
+- Sense
+- Cloud thoughts
+- Coerce
+- Intimidate
+- Insult
+- Repetitive Stupidity
+
+#### Indirect
+- Gang-stalking (sometimes similar to a flash-mob)
+- Lie to others around you
+- Feed people messages related to you, making it seem like those individuals are "in-the-know"
+
+## Resources
+
+**BOOKS**
+
+- Psychic Self Defense - Dion Fortune (somewhat dated, but a classic.)
+- Practical Techniques of Psychic Self Defense - Murry Hope 
+- [Analysis and Assessment of Gateway Process](https://www.cia.gov/readingroom/docs/cia-rdp96-00788r001700210016-5.pdf) - CIA.gov FOIA Release (Scientific Background, Describes using Psi for Military Purpose)
+
+### Background
+
+- Men Who Stare at Goats 
+  >  Jon Ronson concerning the U.S. Army's exploration of New Age concepts and the potential military applications of the paranormal. The book is a companion to a three-part TV series broadcast in Britain on Channel 4—Crazy Rulers of the World (2004)—the first episode of which is also entitled "The Men Who Stare at Goats". The book received a loose feature film adaptation released in 2009. \[[wikipedia](https://en.wikipedia.org/wiki/The_Men_Who_Stare_at_Goats)]
+- Mystical Qabalah - Dion Fortune (Philosophical framework for conceptual comprehension)
+  >  Dion Fortune's classic, The Mystical Qabalah, explores all aspects of the Qabalah, including the esoteric sciences of astrology and tarot, which form the basis of the Western Mystery Traditions. It provides a key to the practical working of this mystical system for both novice and initiate alike. 
+- The Holographic Universe - Michael Talbot 
+  > Two of the world's most eminent thinkers believe that the universe itself may be a giant hologram, quite literally a kind of image or construct created, at least in part, by the human mind \[...] theory explains not only many of the unsolved puzzles of physics but also such mysterious occurrences as telepathy, out-of-body and near-death experiences, lucid dreams, and even religious and mystical experiences, such as feelings of cosmic unity and miraculous healings. 
+- The vodou quantum leap - Reginald Crosley (more depth on above)
+  > In this unique synthesis of African-Haitian spirituality, Western religion, Eastern mysticism, and modern science, Dr. Crosley presents Vodou as a metaphysical experience--a bridge to parallel universes and mystical dimensions, confirmed by the eerie tenets of quantum physics.
