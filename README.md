@@ -1,5 +1,7 @@
 # Psychic Defense Initiative
 
+<img width="519" height="499" alt="image" src="https://github.com/user-attachments/assets/71356eef-5ddc-4db6-9137-f8b69b72bc2e" />
+
 People get Out of Body Experiences OBE \ Astral Travel \ Psi capacities thru various means... trauma, dreaming, meditation, drugs, genetics, etc.
 
 - As discussed in Kathy O’Brien’s “Trance-Formation of America” [@CaptainBoomer](https://twitter.com/CaptainBoomer/)
@@ -13,8 +15,6 @@ There appear to be a variety of cultures acting in the Astral Realm, with their 
 The situation brings to mind the exhortation "anyone who looks at a woman lustfully has already committed adultery with her in his heart." 
 
 While I'm not too concerned about lustful thoughts, one might choose thier thoughts more carefully if it was understood that the other party "overheard" those thoughts, and might even feel as though you were enacting them physically. Beyond that, there are many nasty techniques that can be engaged in because of plausible deniability and a "who's going to stop me?" mentality. This could be especially so if they are part of a group which is able to defend itself from justice.
-
-<img width="519" height="499" alt="image" src="https://github.com/user-attachments/assets/71356eef-5ddc-4db6-9137-f8b69b72bc2e" />
 
 ## Goals
 ### My Goals
