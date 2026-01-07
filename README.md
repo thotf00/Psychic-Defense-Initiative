@@ -6,13 +6,11 @@ People get Out of Body Experiences OBE \ Astral Travel \ Psi capacities thru var
 
 As we are familiar in life, there are a range of moral qualities to people, and range of knowledge\experience\skills which are paired with a corresponding set of vulnerabilities
 
-This realm is like the wild west...  there are rules and customs, but its not like participants realize how many observers there are, and even if etheric actions are objected to.. its not always enforceable
+This realm is like the wild west...  there are rules and customs, but participants rarely comprehend who or how many may be watching at a given time. Even if actions are objected to in this space, its not always enforceable. Moreover, its a morally ambiguous sphere. Individuals could easily get in over their head, self-motivated or otherwise, before they comprehend the consequences of thier actions.
 
-Moreover, its not always clear what the morals are in such an environment... its a morally ambiguous sphere.
+There appear to be a variety of cultures acting in the Astral Realm, with their own subcultures and guidelines which are generally upheld. That said, the moral standard in many is questionable to say the least...
 
-There are a variety of cultures, with their own subcultures and guidelines which are generally upheld, but the moral standard in many is questionable to say the least... 
-
-This environment brings to mind the exhortation "anyone who looks at a woman lustfully has already committed adultery with her in his heart."
+The situation brings to mind the exhortation "anyone who looks at a woman lustfully has already committed adultery with her in his heart." 
 
 While I'm not too concerned about lustful thoughts, one might choose thier thoughts more carefully if it was understood that the other party "overheard" those thoughts, and might even feel as though you were enacting them physically. Beyond that, there are many nasty techniques that can be engaged in because of plausible deniability and a "who's going to stop me?" mentality. This could be especially so if they are part of a group which is able to defend itself from justice.
 
