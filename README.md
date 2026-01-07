@@ -16,6 +16,23 @@ The situation brings to mind the exhortation "anyone who looks at a woman lustfu
 
 While I'm not too concerned about lustful thoughts, one might choose thier thoughts more carefully if it was understood that the other party "overheard" those thoughts, and might even feel as though you were enacting them physically. Beyond that, there are many nasty techniques that can be engaged in because of plausible deniability and a "who's going to stop me?" mentality. This could be especially so if they are part of a group which is able to defend itself from justice.
 
+## Who is this For?
+I'm not here to convince anyone, but am mainly interested in collaborating with those who have interest
+
+## What is the Playing Field
+The relevant experiences range from gaslighting from seemingly random 3rd parties, to direct thought to thought communication.
+
+- Public Spaces (Social pressure)
+- Mental Sphere (Manipulation via direct and indirect means)
+- Social Interactions (Manipulation of associates, bia similar techniques as used individually)
+
+## Who is Vulnerable?
+
+- Magical Practicioners
+- Drug users and Addicts 
+- Anyhone with an extensive history with trauma
+- Those succeptible to manipulation by guilt, fear, shame, pride, or greed
+
 ## Goals
 ### My Goals
 
@@ -38,7 +55,6 @@ even worse is that if they have access to your consciousness, they are exposed t
 
 One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises
 depending on your vulnerabilities, these can have various impacts from bad to worse, if you know what i mean
-
 
 ## Super Evil Ones:
 
