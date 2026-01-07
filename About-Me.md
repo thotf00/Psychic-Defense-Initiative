@@ -8,6 +8,10 @@ My name is [David Danforth](https://www.linkedin.com/in/david-danforth-876a7b222
 - Depth of Study in Esoteric Philosophy with deep roots in:
   - Qabalah
   - Sacred Geometry
+- Resolved the majority of my addictions, guilt, fear, and shame before encountering the most difficult interactions.
+  - I have emotional management skills (Social Emotional Learning)
+  - I spent 3 years developing a regular meditation practice (1000+ hours)
+  - A considerable amount of time working on heart opening techniques
 
 ## Educational Resources
 
