@@ -20,9 +20,11 @@ These materials I found to be critical to comprehending the nature of reality, w
 
 ### Psychic Development
 - Psychic Self Defense - Dion Fortune (somewhat dated, but a classic.)
+- Alice A Bailey - Telepathy (provides guidance and worldview from a practicioners view)
 
 ### Esoteric Philosophy
-- Mystical Qabalah - Dion Fortune (Philosophical framework for conceptual comprehension)
+- Tao Te Ching \ Hua Hu Ching (Nondualistic thinking)
+- Mystical Qabalah - Dion Fortune (Metaphysics, philosophical framework, practical guidance, along with a practice in associative thinking via correspondances)
   >  Dion Fortune's classic, The Mystical Qabalah, explores all aspects of the Qabalah, including the esoteric sciences of astrology and tarot, which form the basis of the Western Mystery Traditions. It provides a key to the practical working of this mystical system for both novice and initiate alike. 
 - The Doctrine and Ritual of High Magic, Elphias Levi (Describes the workings of secret societies and sacred orders)
 
@@ -40,4 +42,6 @@ These materials I found to be critical to comprehending the nature of reality, w
   > Two of the world's most eminent thinkers believe that the universe itself may be a giant hologram, quite literally a kind of image or construct created, at least in part, by the human mind \[...] theory explains not only many of the unsolved puzzles of physics but also such mysterious occurrences as telepathy, out-of-body and near-death experiences, lucid dreams, and even religious and mystical experiences, such as feelings of cosmic unity and miraculous healings. 
 - The vodou quantum leap - Reginald Crosley (more depth on above)
   > In this unique synthesis of African-Haitian spirituality, Western religion, Eastern mysticism, and modern science, Dr. Crosley presents Vodou as a metaphysical experience--a bridge to parallel universes and mystical dimensions, confirmed by the eerie tenets of quantum physics.
+- Cycles of Time by Roger Penrose (Getting into the Weeds)
+  > - Conformal Cyclic Cosmology (CCC): The theory proposes that what we call the Big Bang was not the beginning of everything, but rather the beginning of our current "aeon," following the end of a previous one.
 
