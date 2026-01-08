@@ -26,10 +26,14 @@ The relevant experiences range from gaslighting from seemingly random 3rd partie
 - Mental Sphere (Manipulation via direct and indirect means)
 - Social Interactions (Manipulation of associates, bia similar techniques as used individually)
 
+Because the tactics involve both direct, and indirect manipulation, one can never tell who is being influenced and is consciously engaging with our reality and who is simply reacting to unseen forces.
+
 ## Who is Vulnerable?
 
-- Magical Practicioners
-- Drug users and Addicts 
+- Spiritual and Magickal Practicioners
+- Drug users and Addicts
+- Channels
+- Inexperienced Dungeons and Dragons Players 
 - Anyhone with an extensive history with trauma
 - Those succeptible to manipulation by guilt, fear, shame, pride, or greed
 
@@ -56,16 +60,16 @@ even worse is that if they have access to your consciousness, they are exposed t
 One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises
 depending on your vulnerabilities, these can have various impacts from bad to worse, if you know what i mean
 
-## Super Evil Ones:
+## "Evil Ones":
 
-1. Addicted to torture, both giving and receiving,
+1. Gain power from and are addicted to torturing others as well as being "punished" by etheric violence.
 2. Coerce individuals into doing evil, then hold it over your head to do more bad ideas.
 3. Pretend to be friends, and lure innocents into seemingly innocuous actions.
 4. They seduce people with psychic sex that's usually nasty gross and nothing like lovemaking.
 5. Apparently automated, very little genuine communication.
 
 ## Tactics and Techniques 
-- spread across sense-modalities
+- often demonstrated across sense-modalities
 
 ### Tactics of Entrapment
 Most Commonly, they promise future pleasures or pain.
@@ -93,21 +97,26 @@ Most Commonly, they promise future pleasures or pain.
 - Lie to others around you
 - Feed people messages related to you, making it seem like those individuals are "in-the-know"
 
-## Resources
+## Resources: BOOKS \ MEDIA
 
-**BOOKS**
-
+- [Telepathy](https://github.com/thotf00/Psychic-Defense-Initiative/blob/main/PDI-Notes_Telepathy-Bailey.md), Alice Bailey: provides a profound spiritual and energetic framework for understanding telepathic and psychic phenomena.
 - Psychic Self Defense - Dion Fortune (somewhat dated, but a classic.)
 - Practical Techniques of Psychic Self Defense - Murry Hope 
 - [Analysis and Assessment of Gateway Process](https://www.cia.gov/readingroom/docs/cia-rdp96-00788r001700210016-5.pdf) - CIA.gov FOIA Release (Scientific Background, Describes using Psi for Military Purpose)
 
 ### Background
 
-- Men Who Stare at Goats 
-  >  Jon Ronson concerning the U.S. Army's exploration of New Age concepts and the potential military applications of the paranormal. The book is a companion to a three-part TV series broadcast in Britain on Channel 4—Crazy Rulers of the World (2004)—the first episode of which is also entitled "The Men Who Stare at Goats". The book received a loose feature film adaptation released in 2009. \[[wikipedia](https://en.wikipedia.org/wiki/The_Men_Who_Stare_at_Goats)]
-- Mystical Qabalah - Dion Fortune (Philosophical framework for conceptual comprehension)
+- [Men Who Stare at Goats](https://en.wikipedia.org/wiki/The_Men_Who_Stare_at_Goats): Jon Ronson concerning the U.S. Army's exploration of New Age concepts and the potential military applications of the paranormal. 
+  - [Crazy Rulers of the World](https://www.youtube.com/playlist?list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10) (2004): British 3 Part TV Series
+     - [The Men Who Stare At Goats - Part 1](https://www.youtube.com/watch?v=6WjDRQIYoKA&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=1&pp=iAQB "Crazy Rulers of the World - Part 1 - The Men Who Stare At Goats") - [Part 2](https://www.youtube.com/watch?v=pFnOCjfgKug&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=2&pp=iAQB "Crazy Rulers of the World - Part 2 - The Men Who Stare At Goats") - [Part 3](https://www.youtube.com/watch?v=ESYw3D9BUso&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=3&pp=iAQB "Crazy Rulers of the World - Part 3 - The Men Who Stare At Goats")
+     - [Funny Torture - Part 5](https://www.youtube.com/watch?v=4nGP_PusGAc&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=4&pp=iAQB "Crazy Rulers of the World - Part 5 - Funny Torture")
+     - [Part 4](https://www.youtube.com/watch?v=F0MB3BV_0TU&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=5&pp=iAQB "Crazy Rulers of the World - Part 4 - Funny Torture") - [Part 6](https://www.youtube.com/watch?v=dTKfpeV9fkM&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=6&pp=iAQB "Crazy Rulers of the World - Part 6 - Funny Torture")
+     - [The Psychic Footsoldiers - Part 7](https://www.youtube.com/watch?v=paC9VT25YwA&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=7&pp=iAQB "Crazy Rulers of the World - Part 7 - The Psychic Footsoldiers") - [Part 9](https://www.youtube.com/watch?v=rreApCQclmc&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=8&pp=iAQB "Crazy Rulers of the World - Part 9 - The Psychic Footsoldiers")
+   - [The Men Who Stare at Goats](https://www.imdb.com/title/tt1234548/) (2009): a loose feature film adaptation.
+- [Mystical Qabalah](https://www.awakening-intuition.com/FortuneDion-TheMysticalQabbalah.pdf) - [Dion Fortune](https://en.wikipedia.org/wiki/Dion_Fortune) (Philosophical framework for conceptual comprehension)
   >  Dion Fortune's classic, The Mystical Qabalah, explores all aspects of the Qabalah, including the esoteric sciences of astrology and tarot, which form the basis of the Western Mystery Traditions. It provides a key to the practical working of this mystical system for both novice and initiate alike. 
-- The Holographic Universe - Michael Talbot 
+- [The Holographic Universe](https://www.rybn.org/ANTI/ADMXI/documentation/ADMXI/IV.ALGORITHMS/QUANTUM_V/PARALLELISM/HOLOGRAPHIC_UNIVERSE/1991_Michael_Talbot_-_The_Holographic_Universe.pdf) (1991) - Michael Talbot 
   > Two of the world's most eminent thinkers believe that the universe itself may be a giant hologram, quite literally a kind of image or construct created, at least in part, by the human mind \[...] theory explains not only many of the unsolved puzzles of physics but also such mysterious occurrences as telepathy, out-of-body and near-death experiences, lucid dreams, and even religious and mystical experiences, such as feelings of cosmic unity and miraculous healings. 
-- The vodou quantum leap - Reginald Crosley (more depth on above)
+- [The vodou quantum leap](https://awakenedonez.wordpress.com/wp-content/uploads/2018/12/The-vodou-quantum-leap-alternative-realities-power-and-mystic.pdf) - Reginald Crosley (more depth on above)
   > In this unique synthesis of African-Haitian spirituality, Western religion, Eastern mysticism, and modern science, Dr. Crosley presents Vodou as a metaphysical experience--a bridge to parallel universes and mystical dimensions, confirmed by the eerie tenets of quantum physics.
+- [Dark Light Consciousness Melanin, Serpent Power, and the Luminous Matrix of Reality](https://www.simonandschuster.com/books/Dark-Light-Consciousness/Edward-Bruce-Bynum/9781594774720) by Edward Bruce Bynum Ph D - The book validates our premise that the astral/mental sphere is a real, interactive domain with diverse inhabitants.
