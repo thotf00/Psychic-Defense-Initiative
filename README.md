@@ -37,48 +37,35 @@ Because the tactics involve both direct, and indirect manipulation, one can neve
 - Anyhone with an extensive history with trauma
 - Those succeptible to manipulation by guilt, fear, shame, pride, or greed
 
-## Goals
-### My Goals
-
-1. Educating people how to get there without trauma
-  - requires dealing with your own trauma before you can get there
-2. Exploring the moral systems I've encountered
-  - determining what are the correct moral guidelines for myself
-  - documenting those efforts for others who may find them useful
-
-### Project Goals
-
-I see this project mainly as equipping people with the tools to navigate this effort, and imagine affinity groups forming in various local and non-local configurations
-
 ## Deceivers and Tricksters
 
 There are many deceivers and tricksters.. they use similar tactics and you never know if someone is for your good or not, regardless of how they present
 
-Even they might not know if they are being tricked into helping or hurting you
-even worse is that if they have access to your consciousness, they are exposed to whoever you are connected to, and can even bait others in your vicinity, depending on skill level
+Even they might not know if they are being tricked into helping or hurting you even worse is that if they have access to your consciousness, they are exposed to whoever you are connected to, and can even bait others in your vicinity, depending on skill level
 
-One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises
-depending on your vulnerabilities, these can have various impacts from bad to worse, if you know what i mean
+One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises depending on your vulnerabilities, these can have various impacts from bad to worse, if you know what i mean
 
-## "Evil Ones":
+### "Evil Ones":
 
 1. Gain power from and are addicted to torturing others as well as being "punished" by etheric violence.
 2. Coerce individuals into doing evil, then hold it over your head to do more bad ideas.
 3. Pretend to be friends, and lure innocents into seemingly innocuous actions.
 4. They seduce people with psychic sex that's usually nasty gross and nothing like lovemaking.
 5. Apparently automated, very little genuine communication.
+6. It often boils down to bullying and intimidation.
 
 ## Tactics and Techniques 
-- often demonstrated across sense-modalities
-
-### Tactics of Entrapment
 Most Commonly, they promise future pleasures or pain.
 
+Demonstrated across sense-modalities
+
+### Tactics of Entrapment
 - Fear
 - Guilt
 - Shame
 - Lust
 - Greed
+- Anger
 
 ### Technique
 #### Direct
@@ -93,9 +80,43 @@ Most Commonly, they promise future pleasures or pain.
 - Repetitive Stupidity
 
 #### Indirect
+- Alt accounts
 - Gang-stalking (sometimes similar to a flash-mob)
 - Lie to others around you
 - Feed people messages related to you, making it seem like those individuals are "in-the-know"
+
+## Goals
+### My Goals
+
+1. Educating people how to get there without trauma
+  - requires dealing with your own trauma before you can get there
+2. Exploring the moral systems I've encountered
+  - determining what are the correct moral guidelines for myself
+  - documenting those efforts for others who may find them useful
+
+### Project Goals
+
+I see this project mainly as equipping people with the tools to navigate this effort, and imagine affinity groups forming in various local and non-local configurations
+
+## Cognitive Security (CogSec)
+
+If we are talking Cognitive Security (CogSec), it will begin with brain health.
+
+By the time you are consciously processing information, you are only experiencing results of unconscious mechanisms.
+
+To have proper cognitive security, you need:
+
+- Clean Food
+- Clean Water
+- Clean Air
+- Social Connection
+- Mental Health Hygene Habits 
+- Aerobic Exercise (Especially after 30 when mitochondrial function declines)d
+- Meditation (For Better than 'OK' Brain Health)
+
+## Mental Health
+
+This will include processing of trauma, etc... (To Be Continued)
 
 ## Resources: BOOKS \ MEDIA
 
@@ -105,7 +126,6 @@ Most Commonly, they promise future pleasures or pain.
 - [Analysis and Assessment of Gateway Process](https://www.cia.gov/readingroom/docs/cia-rdp96-00788r001700210016-5.pdf) - CIA.gov FOIA Release (Scientific Background, Describes using Psi for Military Purpose)
 
 ### Background
-
 - [Men Who Stare at Goats](https://en.wikipedia.org/wiki/The_Men_Who_Stare_at_Goats): Jon Ronson concerning the U.S. Army's exploration of New Age concepts and the potential military applications of the paranormal. 
   - [Crazy Rulers of the World](https://www.youtube.com/playlist?list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10) (2004): British 3 Part TV Series
      - [The Men Who Stare At Goats - Part 1](https://www.youtube.com/watch?v=6WjDRQIYoKA&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=1&pp=iAQB "Crazy Rulers of the World - Part 1 - The Men Who Stare At Goats") - [Part 2](https://www.youtube.com/watch?v=pFnOCjfgKug&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=2&pp=iAQB "Crazy Rulers of the World - Part 2 - The Men Who Stare At Goats") - [Part 3](https://www.youtube.com/watch?v=ESYw3D9BUso&list=PLg2phFSsDpobzJWx3yZXdee3fGhjeSu10&index=3&pp=iAQB "Crazy Rulers of the World - Part 3 - The Men Who Stare At Goats")
@@ -120,3 +140,5 @@ Most Commonly, they promise future pleasures or pain.
 - [The vodou quantum leap](https://awakenedonez.wordpress.com/wp-content/uploads/2018/12/The-vodou-quantum-leap-alternative-realities-power-and-mystic.pdf) - Reginald Crosley (more depth on above)
   > In this unique synthesis of African-Haitian spirituality, Western religion, Eastern mysticism, and modern science, Dr. Crosley presents Vodou as a metaphysical experience--a bridge to parallel universes and mystical dimensions, confirmed by the eerie tenets of quantum physics.
 - [Dark Light Consciousness Melanin, Serpent Power, and the Luminous Matrix of Reality](https://www.simonandschuster.com/books/Dark-Light-Consciousness/Edward-Bruce-Bynum/9781594774720) by Edward Bruce Bynum Ph D - The book validates our premise that the astral/mental sphere is a real, interactive domain with diverse inhabitants.
+- [Consciousness and the Universe: Quantum Physics, Evolution, Brain & Mind](https://github.com/cognitivetech/Quantum-Consciousness_Microtubules_Orch-OR/blob/main/Consciousness-and-the-Universe_Penrose-Hameroff-Stapp-Chopra-Kak.md) Roger Penrose, Stuart Hameroff
+  > FEATURING Cosmological Foundations of Consciousness Origins of Thought Evolution of Consciousness Neuroscience of Free Will Quantum Physics & Consciousness Out-of-Body and Near Death Experiences Dreams & Hallucinations Paleolithic Cosmology & Spirituality Self-Consciousness in Apes, Dolphins, Cephalopods, Machines Consciousness in Extra-Terrestrials Sexual Consciousness How Consciousness Becomes the Physical Universe 
