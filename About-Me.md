@@ -33,7 +33,7 @@ These materials I found to be critical to comprehending the nature of reality, w
 - Psychic Self Defense - Dion Fortune (somewhat dated, but a classic.)
 - Alice A Bailey - Telepathy (provides guidance and worldview from a practicioners view)
 
-### Science and Sacred
+### Probability and Time-Theory
 - The Big Picture: On the Origins of Life, Meaning, and the Universe Itself by Sean Carroll
 -  Cycles of Time by Roger Penrose (Getting into the Weeds)
   > - Conformal Cyclic Cosmology (CCC): The theory proposes that what we call the Big Bang was not the beginning of everything, but rather the beginning of our current "aeon," following the end of a previous one.
