@@ -4,6 +4,8 @@ My name is [David Danforth](https://www.linkedin.com/in/david-danforth-876a7b222
 - Deeply spiritual youth:
   - Read the Bible rigorously from ages 7-17
   - Was a very worshipful and prayerful youth
+  - Began attending my own churches (additionally to the Roman Catholic Church, as required) around 9 years of age.
+  - Studied the history of Bible, both old and new testament, especially gospels, including works published by participants of Jesus Seminar, and Westar Institute, around age 17.
 - Travelled extensively across the USA from ages 19-35 (hitchiking/greyhound/auto)
 - Depth of Study in Esoteric Philosophy with deep roots in:
   - Qabalah
@@ -22,9 +24,19 @@ These materials I found to be critical to comprehending the nature of reality, w
   - [Gateway Experience: Wave I - Discovery](https://www.monroeinstitute.org/products/gateway-experience-wave-i-discovery?variant=45531518009661)
     - This program demonstrated to me that processing of traumas is key to gaining OBE through meditative means. The processes are similar to EMDR and guided meditation including visualization both theraputic and of traditional origins.
 
+- The Holographic Universe - Michael Talbot 
+  > Two of the world's most eminent thinkers believe that the universe itself may be a giant hologram, quite literally a kind of image or construct created, at least in part, by the human mind \[...] theory explains not only many of the unsolved puzzles of physics but also such mysterious occurrences as telepathy, out-of-body and near-death experiences, lucid dreams, and even religious and mystical experiences, such as feelings of cosmic unity and miraculous healings. 
+- The vodou quantum leap - Reginald Crosley (more depth on above)
+  > In this unique synthesis of African-Haitian spirituality, Western religion, Eastern mysticism, and modern science, Dr. Crosley presents Vodou as a metaphysical experience--a bridge to parallel universes and mystical dimensions, confirmed by the eerie tenets of quantum physics.
+
 ### Psychic Development
 - Psychic Self Defense - Dion Fortune (somewhat dated, but a classic.)
 - Alice A Bailey - Telepathy (provides guidance and worldview from a practicioners view)
+
+### Science and Sacred
+- The Big Picture: On the Origins of Life, Meaning, and the Universe Itself by Sean Carroll
+-  Cycles of Time by Roger Penrose (Getting into the Weeds)
+  > - Conformal Cyclic Cosmology (CCC): The theory proposes that what we call the Big Bang was not the beginning of everything, but rather the beginning of our current "aeon," following the end of a previous one.
 
 ### Esoteric Philosophy
 - Tao Te Ching \ Hua Hu Ching (Nondualistic thinking)
@@ -40,12 +52,3 @@ These materials I found to be critical to comprehending the nature of reality, w
   > Exploring key monuments and their positions in Egypt, Stonehenge, Jerusalem, Rome, Paris, London, Edinburgh, Washington DC, New York, and San Francisco brings to light a secret obsession shared by pharaohs, philosophers and kings; Templars and Freemasons; great artists and architects; popes and presidents, spanning the whole of recorded history up to the present time.
   > 
   > As the series of videos reveals how profound ancient knowledge inherited from Egypt has been encoded in units of measurement, in famous works of art, in the design of major buildings, in the layout of city streets and public spaces, and in the precise placement of obelisks and other important monuments upon the Earth, the viewer is led to perceive an elegant harmonic system linking the human body with the architectural, urban, planetary, solar, and galactic scales.
-
-### Science and Sacred
-- The Holographic Universe - Michael Talbot 
-  > Two of the world's most eminent thinkers believe that the universe itself may be a giant hologram, quite literally a kind of image or construct created, at least in part, by the human mind \[...] theory explains not only many of the unsolved puzzles of physics but also such mysterious occurrences as telepathy, out-of-body and near-death experiences, lucid dreams, and even religious and mystical experiences, such as feelings of cosmic unity and miraculous healings. 
-- The vodou quantum leap - Reginald Crosley (more depth on above)
-  > In this unique synthesis of African-Haitian spirituality, Western religion, Eastern mysticism, and modern science, Dr. Crosley presents Vodou as a metaphysical experience--a bridge to parallel universes and mystical dimensions, confirmed by the eerie tenets of quantum physics.
-- Cycles of Time by Roger Penrose (Getting into the Weeds)
-  > - Conformal Cyclic Cosmology (CCC): The theory proposes that what we call the Big Bang was not the beginning of everything, but rather the beginning of our current "aeon," following the end of a previous one.
-
