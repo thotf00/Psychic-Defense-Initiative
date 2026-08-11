@@ -1,15 +1,15 @@
 
-## Scam Mule Body Count
+## Scammy Evil Faced Art
+
+<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"  style="display: block; width: 50%;"></a>
+<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"  style="display: block; width: 50%;"></a>
+<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2025.jpeg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2025.jpeg" style="display: block; width: 50%;"></a>
+<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2026.jpg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2026.jpg"  style="display: block; width: 50%;"></a>
+
+### 80%-98.99% Consumed by Death
 
 <a href="SCAM-YULE_EVILFACETATT_2023.jpeg"><img src="SCAM-YULE_EVILFACETATT_2023.jpeg"  style="display: block; width: 50%;"></a>
 <a href="SCAM-YULE_EVILFACETATT_2026.jpeg"><img src="SCAM-YULE_EVILFACETATT_2026.jpeg"  style="display: block; width: 50%;"></a>
-
-
-## Scammy Evil Face Tart
-
-<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2025.jpeg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2025.jpeg" style="display: block; width: 50%;"></a>
-<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2026.jpg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-2026.jpg"  style="display: block; width: 50%;"></a>
-<a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"  style="display: block; width: 50%;"></a>
 
 ## Lilly ScamHeld
 
