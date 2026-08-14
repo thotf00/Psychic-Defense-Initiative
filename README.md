@@ -87,6 +87,18 @@ Demonstrated across sense-modalities
 - Lie to others around you
 - Feed people messages related to you, making it seem like those individuals are "in-the-know"
 
+## Means of Deception
+
+These tricksters may provide others false accounts of you, just as they may provide you false accounts of others.
+
+- Deceptive Communications, whether by sight or auditory means
+- False Visions
+- False Thought Impressions
+
+We remain vulnerable to these false accounts, to the extent which we have under-processed trauma, and under-reconciled sin.
+
+Others may be held under the sway of these false communications for the same reasons.
+
 ## Goals
 ### My Goals
 
