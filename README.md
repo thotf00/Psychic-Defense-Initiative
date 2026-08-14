@@ -8,15 +8,15 @@ People get Out of Body Experiences OBE \ Astral Travel \ Psi capacities thru var
 
 As we are familiar in life, there are a range of moral qualities to people, and range of knowledge\experience\skills which are paired with a corresponding set of vulnerabilities
 
-This realm is like the wild west...  there are rules and customs, but participants rarely comprehend who or how many may be watching at a given time. Even if actions are objected to in this space, its not always enforceable. Moreover, its a morally ambiguous sphere. Individuals could easily get in over their head, self-motivated or otherwise, before they comprehend the consequences of thier actions.
+This realm is like the wild west...  there are rules and customs, but participants rarely comprehend who or how many may be watching at a given time. Even if actions are objected to in this space, its not always enforceable. Moreover, its a morally ambiguous sphere. Individuals could easily get in over their head, self-motivated or otherwise, before they comprehend the consequences of their actions.
 
 There appear to be a variety of cultures acting in the Astral Realm, with their own subcultures and guidelines which are generally upheld. That said, the moral standard in many is questionable to say the least...
 
 The situation brings to mind the exhortation "anyone who looks at a woman lustfully has already committed adultery with her in his heart." 
 
-> **Teaching About Adultery. 27-30** “You have heard that it was said, ‘You shall not commit adultery.’ 28 But I say to you, everyone who looks at a woman with lust has already committed adultery with her in his heart. **If your right eye causes you to sin, tear it out and throw it away. It is better for you to lose one of your members than to have your whole body thrown into Gehenna. And if your right hand causes you to sin, cut it off and throw it away. It is better for you to lose one of your members than to have your whole body go into Gehenna.**
+> **Matthew 5:27-30** “You have heard that it was said, ‘You shall not commit adultery.’ But I say to you, everyone who looks at a woman with lust has already committed adultery with her in his heart. **If your right eye causes you to sin, tear it out and throw it away. It is better for you to lose one of your members than to have your whole body thrown into Gehenna. And if your right hand causes you to sin, cut it off and throw it away. It is better for you to lose one of your members than to have your whole body go into Gehenna.**
 
-While I'm not too concerned about lustful thoughts, one might choose thier thoughts more carefully if it was understood that the other party "overheard" those thoughts, and might even feel as though you were enacting them physically. Beyond that, there are many nasty techniques that can be engaged in because of plausible deniability and a "who's going to stop me?" mentality. This could be especially so if they are part of a group which is able to defend itself from justice.
+While I'm not too concerned about lustful thoughts, one might choose their thoughts more carefully if it was understood that the other party "overheard" those thoughts, and may even feel them physically. Beyond that, there are many nasty techniques that can be engaged in because of plausible deniability and a "who's going to stop me?" mentality. 
 
 ## Who is this For?
 I'm not here to convince anyone, but am mainly interested in collaborating with those who have interest
@@ -47,7 +47,7 @@ Even they might not know if they are being tricked into helping or hurting you e
 
 One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises depending on your vulnerabilities, these can have various impacts from bad to worse, if you know what i mean
 
-### "Evil Ones":
+### "Evil Ones" (aka: Fake Assed Illuminati):
 
 1. Gain power from and are addicted to torturing others as well as being "punished" by etheric violence.
 2. Coerce individuals into doing evil, then hold it over your head to do more bad ideas.
@@ -106,7 +106,7 @@ If we are talking Cognitive Security (CogSec), it will begin with brain health.
 
 By the time you are consciously processing information, you are only experiencing results of unconscious mechanisms.
 
-To have proper cognitive security, you need:
+#### To have proper cognitive security, you need:
 
 - Clean Food
 - Clean Water
@@ -116,9 +116,15 @@ To have proper cognitive security, you need:
 - Aerobic Exercise (Especially after 30 when mitochondrial function declines)d
 - Meditation (For Better than 'OK' Brain Health)
 
-## Mental Health
+### Mental Health
 
-This will include processing of trauma, etc... (To Be Continued)
+- Examine trauma: We often hide from our pain, but this leaves us vulnerable to sin and additional trauma.
+- Shadow work: when we are bothered by others actions dis-proportionally, this may indicate some part of ourselves we are not happy with.
+
+### Spiritual Health
+
+- Confession: to loved ones, and others who may have been impacted by your thoughts\actions.
+- Restorative: help others in ways that your actions may have negatively impacted, previously.
 
 ## Resources: BOOKS \ MEDIA
 
