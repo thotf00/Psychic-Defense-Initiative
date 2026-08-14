@@ -94,10 +94,13 @@ These tricksters may provide others false accounts of you, just as they may prov
 - Deceptive Communications, whether by sight or auditory means
 - False Visions
 - False Thought Impressions
+- False Memory.
 
 We remain vulnerable to these false accounts, to the extent which we have under-processed trauma, and under-reconciled sin.
 
 Others may be held under the sway of these false communications for the same reasons.
+
+To the extent which one is bound by these beings, memory is malleable and easily re-configured.
 
 ## Goals
 ### My Goals
