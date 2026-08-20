@@ -146,10 +146,17 @@ By the time you are consciously processing information, you are only experiencin
 ## Resources
 ### Cognitive Security
 
-> “What disturbs men’s minds is not events but their judgments on events”  
-> ~ Epictetus (stoic philosopher, & a major influence on Ellis)
+For mental health the only two books a household needs:
+
+**Diagnosing Developmental Trauma**:
+- Eastern Body Western Mind, Aoneda Judith (Compares Western Developmental Theory with Chakra system, can help identify by symptom which ages you had difficulties)
+**Practical Therapeutic tools and teachings**
+- My Grandmothers Hands, Resmaa Menakem
 
 #### [Albert Ellis 12 Typical Irrational Beliefs and Disputing Statements}(https://iveronicawalsh.wordpress.com/2013/01/07/apply-the-albert-ellis-12-irrational-beliefs-and-disputing-statements-to-your-2013/)
+
+> “What disturbs men’s minds is not events but their judgments on events”  
+> ~ Epictetus (stoic philosopher, & a major influence on Ellis)
 
 |IRRATIONAL|RATIONAL|
 |---|---|
@@ -176,7 +183,8 @@ By the time you are consciously processing information, you are only experiencin
 - [Anti-Racist Curriculum](https://github.com/cognitivetech/Anti-Racist-Curriculum)
 - [How to Change Your Values](https://github.com/cognitivetech/Values-Work)
 - [Love Your Neighbor](https://github.com/cognitivetech/universal-love)
-- [Cognitive Behavioral Therapy](https://github.com/cognitivetech/David-Burns-Feeling-Good-TEAM-CBT) David Burns
+- [Cognitive Behavioral Therapy](https://github.com/cognitivetech/CBT-Cognitive-Behavioral-Therapy)
+  - [Cognitive Behavioral Therapy - Feeling Good](https://github.com/cognitivetech/David-Burns-Feeling-Good-TEAM-CBT) David Burns
   - [Tools and Techniques](https://github.com/cognitivetech/David-Burns-Feeling-Good-TEAM-CBT/blob/master/tools-and-techniques.md)
   - [Negative and Positive Cognitive Distortions](https://github.com/cognitivetech/David-Burns-Feeling-Good-TEAM-CBT/blob/master/self-defeating-beliefs-and-distortions.md)
     - ['Needs' and Self Defeating Beliefs (SDB)](https://github.com/cognitivetech/David-Burns-Feeling-Good-TEAM-CBT/blob/master/self-defeating-beliefs-and-distortions.md#needs-and-self-defeating-beliefs-sdb)
