@@ -6,15 +6,21 @@ The "Psychic Terrorists" have certainly been programmed by these techniques, som
 
 Not mentioned in the book is that these trainings provide the subjects with Psychic powers, and subsequently, these automated "mind-control slaves" gradually gain control over their original programmers, making it impossible to remove them from power, by individuals who place them there.
 
-# Photo Examples
+## Photo Examples
 
-Some friends of mine in the Shores area. My understanding is that Sammy was programmed with the Friz formula as a child, and then programmed Lil. 
+Some friends of mine in the Shores area. My understanding is that Sammy was programmed with the Friz formula as a child, and then programmed Lil over the past ~6 years (whi was my girlfriend for some months earlier this year, how I gained such intimate understanding of their personality changes and identified the relationship with friz code). 
 
 When looking over the contents of this book, I easily identified them as having been programmed using these very techniques and protocols, having endless backups if certain personalities were overly disrupted. 
 
 By using this formula, a victim is repeatedly raped and tortured, commonly beginning before birth, shattering the consiousness relentlessly over years, under-which their mind becomes a blank slate which can repeat instructions flawlessly without fail. After being raped and tortured throughout a meticulous process, the victim is programmed with a series of personalities and backup personas which, being disturbed, or at the command of their programmer, can be changed on demand.
 
-A major problem with this technique. besides the obvious hellish work which ruins the programmer for any life which could be considered human, over time, the "MIND CONTROL SLAVES" GAIN POWER OVER THIER PROGRAMMERS, WHO THEN LOSE ABILITY TO DIRECT THIER FUTURE ACTIONS, THE PROGRAMMED VICTIMS THEMSELVES ALSO HAVING NO SUSTAINED SOVEREIGNTY OVER THOSE ACTIONS.
+## MAJOR PROBLEMS
+Besides the obvious hellish work which ruins the programmer for any life which could be considered human... 
+
+#### "MIND CONTROL SLAVES" GAIN POWER OVER THIER PROGRAMMERS
+### PROGRAMMERS LOSE CONTROL OVER SLAVES
+## SLAVES GAIN CONTROL OVER PROGRAMMERS
+# SLAVES (PROGRAMMED VICTIMS) ALSO HAVE NO SUSTAINED CONTROL OVER OWN ACTIONS.
 
 What I'm saying is. One guy makes a Nazi Zombie Slave, then eventually. that slave becomes uncontrollable by its programmer, also programming others, who then gradually gain control over their programmer.... BUT NO ONE IS ACTUALLY IN CONTROL OF THESE WEAPONS OF PSYCHIC TERROR!!!!!!!
 
