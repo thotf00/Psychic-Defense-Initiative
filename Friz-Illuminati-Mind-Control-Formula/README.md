@@ -6,7 +6,7 @@ The "Psychic Terrorists" have certainly been programmed by these techniques, som
 
 Not mentioned in the book is that these trainings provide the subjects with Psychic powers, and subsequently, these automated "mind-control slaves" gradually gain control over their original programmers, making it impossible to remove them from power, by individuals who place them there.
 
-## Photo Examples
+## PERSONAL EXPERIENS
 
 Some friends of mine in the Shores area. My understanding is that Sammy was programmed with the Friz formula as a child, and then programmed Lil over the past ~6 years (whi was my girlfriend for some months earlier this year, how I gained such intimate understanding of their personality changes and identified the relationship with friz code). 
 
@@ -24,7 +24,8 @@ Besides the obvious hellish work which ruins the programmer for any life which c
 
 What I'm saying is. One guy makes a Nazi Zombie Slave, then eventually. that slave becomes uncontrollable by its programmer, also programming others, who then gradually gain control over their programmer.... BUT NO ONE IS ACTUALLY IN CONTROL OF THESE WEAPONS OF PSYCHIC TERROR!!!!!!!
 
-## Scamuel MagnAsshole
+## Photo Examples
+### Scamuel MagnAsshole
 
 <a href="Florida-Falling-into-Gulf/SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"><img src="Florida-Falling-into-Gulf/SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"  style="display: block; width: 50%;"></a>
 <a href="Florida-Falling-into-Gulf/SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"><img src="Florida-Falling-into-Gulf/SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"  style="display: block; width: 50%;"></a>
