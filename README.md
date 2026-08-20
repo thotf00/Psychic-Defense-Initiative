@@ -153,7 +153,7 @@ For mental health the only two books a household needs:
 **Practical Therapeutic tools and teachings**
 - My Grandmothers Hands, Resmaa Menakem
 
-#### [Albert Ellis 12 Typical Irrational Beliefs and Disputing Statements}(https://iveronicawalsh.wordpress.com/2013/01/07/apply-the-albert-ellis-12-irrational-beliefs-and-disputing-statements-to-your-2013/)
+#### [Albert Ellis 12 Typical Irrational Beliefs and Disputing Statements](https://iveronicawalsh.wordpress.com/2013/01/07/apply-the-albert-ellis-12-irrational-beliefs-and-disputing-statements-to-your-2013/)
 
 > “What disturbs men’s minds is not events but their judgments on events”  
 > ~ Epictetus (stoic philosopher, & a major influence on Ellis)
