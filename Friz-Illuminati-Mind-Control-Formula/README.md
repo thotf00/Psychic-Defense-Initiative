@@ -25,6 +25,8 @@ Besides the obvious hellish work which ruins the programmer for any life which c
 What I'm saying is. One guy makes a Nazi Zombie Slave, then eventually. that slave becomes uncontrollable by its programmer, also programming others, who then gradually gain control over their programmer.... BUT NO ONE IS ACTUALLY IN CONTROL OF THESE WEAPONS OF PSYCHIC TERROR!!!!!!!
 
 # BEST RECOMMENDATION IS PUT SAMMY IN A LEAD CASE
+### CURRENTLY EXPECTED TO BE HIDING OUT AT UNCLES HOUSE
+<img width="1348" height="369" alt="image" src="https://github.com/user-attachments/assets/8243471f-64f4-4b79-8d5c-7bcac4f93e2a" />
 
 ## Photo Examples
 ### Scamuel MagnAsshole
