@@ -17,9 +17,8 @@ By using this formula, a victim is repeatedly raped and tortured, commonly begin
 ## MAJOR PROBLEMS
 Besides the obvious hellish work which ruins the programmer for any life which could be considered human... 
 
-#### "MIND CONTROL SLAVES" GAIN POWER OVER THIER PROGRAMMERS
-### PROGRAMMERS LOSE CONTROL OVER SLAVES
-## SLAVES GAIN CONTROL OVER PROGRAMMERS
+### "MIND CONTROL SLAVES" GAIN POWER OVER PROGRAMMERS
+## SLAVES PROGRAM ADDITIONAL SLAVES
 # SLAVES (PROGRAMMED VICTIMS) ALSO HAVE NO SUSTAINED CONTROL OVER OWN ACTIONS.
 
 What I'm saying is. One guy makes a Nazi Zombie Slave, then eventually. that slave becomes uncontrollable by its programmer, also programming others, who then gradually gain control over their programmer.... BUT NO ONE IS ACTUALLY IN CONTROL OF THESE WEAPONS OF PSYCHIC TERROR!!!!!!!
