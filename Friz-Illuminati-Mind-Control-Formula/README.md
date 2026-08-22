@@ -2,15 +2,25 @@
 
 This system for mind-control is what I have undoubtedly encountered, here in North Florida.
 
-The "Psychic Terrorists" have certainly been programmed by these techniques, some of them having knowledge to program additional targets.
+The "Psychic Terrorists" have been programmed by these techniques, some of them having knowledge to program additional targets.
 
-Not mentioned in the book is that these trainings provide the subjects with Psychic powers, and subsequently, these automated "mind-control slaves" gradually gain control over their original programmers, making it impossible to remove them from power, by individuals who place them there.
+**Lightly touched upon in the book is that these trainings provide the subjects with Psychic Powers**, and subsequently, these automated "mind-control slaves" gradually gain control over their original programmers, making it impossible to remove them from power, by individuals who place them there.
 
-## PERSONAL EXPERIENS
+## Contents 
 
-Some friends of mine in the Shores area. My understanding is that Sammy was programmed with the Friz formula as a child, and then programmed Lil over the past ~6 years (whi was my girlfriend for some months earlier this year, how I gained such intimate understanding of their personality changes and identified the relationship with friz code). 
+- [Fritz ~~Illuminati~~ \[Peckerwood\] Mind Control Formula](#fritz-illuminati-peckerwood-mind-control-formula)
+- [MAJOR PROBLEMS](#major-problems)
+	- ["MIND CONTROL SLAVES" GAIN POWER OVER PROGRAMMERS](#mind-control-slaves-gain-power-over-programmers)
+- [SLAVES PROGRAM ADDITIONAL SLAVES](#slaves-program-additional-slaves)
+- [PERSONAL EXPERIENCE](#personal-experience)
+- [BEST RECOMMENDATION IS PUT SAMMY IN A LEAD CASE](#best-recommendation-is-put-sammy-in-a-lead-case)
+- [Photo Examples](#photo-examples)
+	- [Scamuel MagnAsshole](#scamuel-magnasshole)
+	- [80%-98.99% Consumed by Death](#80-9899-consumed-by-death)
+	- [Lilly ScamHeld](#lilly-scamheld)
+- [Illuminati Mind Control Formula - Book Summary - Fritz](#illuminati-mind-control-formula---book-summary---fritz)
 
-When looking over the contents of this book, I easily identified them as having been programmed using these very techniques and protocols, having endless backups if certain personalities were overly disrupted. 
+## Fritz ~~Illuminati~~ \[Peckerwood] Mind Control Formula
 
 By using this formula, a victim is repeatedly raped and tortured, commonly beginning before birth, shattering the consiousness relentlessly over years, under-which their mind becomes a blank slate which can repeat instructions flawlessly without fail. After being raped and tortured throughout a meticulous process, the victim is programmed with a series of personalities and backup personas which, being disturbed, or at the command of their programmer, can be changed on demand.
 
@@ -23,7 +33,14 @@ Besides the obvious hellish work which ruins the programmer for any life which c
 
 What I'm saying is. One guy makes a Nazi Zombie Slave, then eventually. that slave becomes uncontrollable by its programmer, also programming others, who then gradually gain control over their programmer.... BUT NO ONE IS ACTUALLY IN CONTROL OF THESE WEAPONS OF PSYCHIC TERROR!!!!!!!
 
-# BEST RECOMMENDATION IS PUT SAMMY IN A LEAD CASE
+## PERSONAL EXPERIENCE
+
+Some friends of mine in the Shores area. My understanding is that Sammy (Carlo) Magnasco was programmed with the Friz formula as a child, awoken from status as sleeper agent ~2013, and then programmed Lil over the past ~6 years (who was my girlfriend for some months earlier this year, how I gained such intimate understanding of their personality changes and identified the relationship with friz code). 
+
+When looking over the contents of this book, I easily identified them as having been programmed using these very techniques and protocols, having endless backups if certain personalities were overly disrupted. 
+
+
+## BEST RECOMMENDATION IS PUT SAMMY IN A LEAD CASE
 ### CURRENTLY EXPECTED TO BE HIDING OUT AT UNCLES HOUSE
 <img width="1348" height="369" alt="image" src="https://github.com/user-attachments/assets/8243471f-64f4-4b79-8d5c-7bcac4f93e2a" />
 
@@ -40,11 +57,11 @@ What I'm saying is. One guy makes a Nazi Zombie Slave, then eventually. that sla
 <a href="Florida-Falling-into-Gulf/SCAM-YULE_EVILFACETATT_2023.jpeg"><img src="Florida-Falling-into-Gulf/SCAM-YULE_EVILFACETATT_2023.jpeg"  style="display: block; width: 50%;"></a>
 <a href="Florida-Falling-into-Gulf/SCAM-YULE_EVILFACETATT_2026.jpeg"><img src="Florida-Falling-into-Gulf/SCAM-YULE_EVILFACETATT_2026.jpeg"  style="display: block; width: 50%;"></a>
 
-## Lilly ScamHeld
+### Lilly ScamHeld
 
 ![Lil-2-Nasty-Formation](Florida-Falling-into-Gulf/Lilly-Scamheld-2022-26.jpeg) 
 
-## Contents 
+## Illuminati Mind Control Formula - Book Summary - Fritz
 - [I. INTRODUCTION AND OVERVIEW](#i-introduction-and-overview)
 	- [Book Purpose and Scope](#book-purpose-and-scope)
 	- [Warnings](#warnings)
