@@ -465,7 +465,8 @@
 - Delta Forces: elite unit operating under Joint chiefs of staff with highly trained mind-controlled slaves
 - Delta models and alters: sole purpose assassination.
 
-#### Deliverance ministry, Illuminati, Monarch programming, techniques and beliefs.
+
+#### Deliverance ministry, Illuminati, Monarch programming, Mind control techniques and beliefs.
 
 **Deliverance Ministry:**
 - Definition: person(s) helping victims from demonic activity through faith in God
@@ -490,7 +491,8 @@
 - Also used to refer to the body's functional physiological units, such as respiratory system
 - Infrequently used to denote the established social-economic-political system controlling the world (Network).
 
-## CHAPTER 1 THE SELECTION AND PREPARATION OF THE VICTIM
+
+### CHAPTER 1 THE SELECTION AND PREPARATION OF THE VICTIM
 
 **Multiple Personality/Dissociative Identity Disorder (MPD/DID)**
 - Definition: Dissociative parts of a single brain view themselves as separate persons
@@ -513,7 +515,6 @@
   - **A. Genetics and Disassociative Abilities**: Monarch butterfly example showed that knowledge can be passed genetically
   - **B. Availability**: Finding suitable victims for programming
   - **C. Mental and Physical Features**: Not specified in provided text
-
 
 #### The Illuminati's creation and use of mind-controlled slaves through trauma and blackmail.
 
@@ -545,6 +546,9 @@
 
 
 #### Monarch slaves: Trauma-based mind control in Illuminati hierarchy and CIA operations.
+
+**Monarch Slaves:**
+
 **Characteristics of Men Preferred by Programmers**
 - Weak-willed men who cannot handle the consequences of committing their entire life to one profession
 - Buckle under threats, removing them from ministry or other careers
@@ -573,6 +577,7 @@
 - Satanists within the Network and CIA took over Boy's Town, NE in early 1950s
 - Constant supply of boys for programming purposes.
 
+
 #### Mengele's Mind Control Programming in the Illuminati: Concentration Camps to America
 
 **Mengele's Skills and Background**
@@ -596,9 +601,7 @@
 - CIA slaves, Mafia slaves, KKK slaves etc., do not receive the same regimen as children from foster homes or pedophiles.
 
 
-#### The Illuminati's Mind Control and Exploitation of Children: Slaves on the "Freedom Train"
-
-**The Illuminati and Mind Control:**
+#### The Illuminati and Mind Control
 
 **Programming**:
 - Presidential Model discarded, women and men continue helping with programming throughout life
@@ -625,7 +628,10 @@
 - Vastly more important for Beta Sex Slaves are their ability to be programmed with charm, seductive skills, charisma, and creativity
 - Beauty not the only factor in selection; any sex slave can fit somewhere into the script of Illuminati/New World Order/crime syndicate "porn" movies. (Note: not Playboy type porn but ghastly horrible atrocities)
 
-#### Sexual Slavery and Mind Development
+
+#### Brainwashing techniques for creating intelligent and skilled sexual slaves.
+
+**Sexual Slavery and Mind Development**
 - **Types of Sexual Slaves**: Those who have their heads chopped off while having sex, as well as sharp, talented, skilled, and resourceful Beta alters for espionage and blackmail (Black Widow alters)
 - **Importance of Proper Brain Development**: Interacting with the child to develop areas of the brain that are important, such as recognition of identical faces, matching items, and enhancing senses for building mirror images
 - **Techniques for Enhancing Intelligence and Creativity**
@@ -636,7 +642,10 @@
   - The importance of having a solid foundation and knowing the natural lay of the land (the victim's mind) to build a strong, structured house
   - Quotes from head programmers: "An unstructured house is like unto a house without walls," "A house undisciplined is like unto a house without walls, it will crumble within itself," and "A house divided against itself will not stand."
 
+
 #### John Gittinger's role in Monarch programming and personality assessment.
+
+**John Gittinger and Monarch Programming**
 * John Gittinger (b. 1909) was a key figure in Monarch programming
 * Director of psychological services at Oklahoma State Hospital
 * Joined CIA's MK Ultra Mind Control in 1950
@@ -650,6 +659,13 @@
 * People born with original placement on these axes
 * Graphing a baby's personality reveals future occupation potential
 - Programming charts and goals based on identified mind type.
+
+**John Gittinger:**
+* Master’s degree at age 30
+* High school guidance counselor, Navy lieutenant commander during WWII
+* Joined CIA in late 1970s
+* Heavyset, goateed
+* Known for insatiable curiosity about understanding human personality.
 
 **The PAS (Personality Assessment System):**
 - Extraordinary method to evaluate human behavior and predict future actions
@@ -688,6 +704,7 @@
   - "An Introduction to the Personality Assessment System" by John Winne and John Gittinger (1973)
   - Rolling Stone magazine article, July 18, 1974, "The CIA Won’t Go public"
 
+
 #### PAS test explanation: Wechsler Intelligence Test basis, E-I (Internalizer-Externalizer) and R-F (Regulated-Flexible) dimensions, EEG use for personality assessment in children, Monarch program involvement.
 
 **PAS Test Explanation:**
@@ -703,7 +720,10 @@
 * Children are trained to be obedient for EEG testing, keep eyes open and still.
 * Use of hospital equipment like 11-channel Grass EEG machine to chart brain wave patterns.
 
-#### **Brain Wave Testing for Personality Assessment**
+
+#### Brain wave testing for personality assessment and Monarch programming using electrodes.
+
+**Brain Wave Testing for Personality Assessment**
 
 **Preparation:**
 - Electrodes attached to child's scalp with adhesive tape or needled ends (T3, T4 etc.)
@@ -733,7 +753,10 @@
 - Children good at math have scripts steered towards math-focused roles
 - Artistically gifted children may use art work for programming.
 
-#### **European Artist M.C. Escher's Artwork for Programming Purposes:**
+
+#### M.C. Escher's art and Monarch Programming: using creativity for personalized programming, PAS testing, and understanding personality structure.
+
+**European Artist M.C. Escher's Artwork for Programming Purposes:**
 - Exceptionally well-suited for programming due to elements like reversals, mirror images, illusion, etc. (52 works)
 - "Another World" drawing serves as wall, floor, ceiling based on perspective
 
@@ -759,6 +782,7 @@
 - Suggests quality of compensations and modifications achieved
 - Evaluates surface personality development over time
 - Assesses fundamental discrepancies between surface and underlying personality structure. (Winne, John F.)
+
 
 #### Trauma-based mind control organizations and their involvement in various institutions.
 
@@ -808,6 +832,7 @@
 * **Palo Mayombe**
 * **Process Church and its offshoot Chingun etc.**
 
+
 #### Occult Groups and Programming: Moon Children, Rituals, and Demonization.
 
 **Illuminati's First Four Stages of Child Programming:**
@@ -831,6 +856,7 @@
 - MI-6 (British overseas intelligence) agent
 - Wrote "Moonchild" first published in 1917
 - Important figure in 20th century Satanism and black magicians.
+
 
 #### Occult rituals for creating a "Moonchild" involving black magic and invoking lunar deities.
 
@@ -856,7 +882,10 @@
 - Woman identified with Grandmother Moon/Diana
 - Front alters not informed about demonization as fetus.
 
-#### **Illuminati's Plan for Generational Curses:**
+
+#### Illuminati's use of generational curses and in utero traumatization for mind control.
+
+**Illuminati's Plan for Generational Curses:**
 * Prefer child born out of wedlock: bastard (violates God's commandment on adultery)
 * Destroys child's self-esteem
 * Ceremonial pacts during Black Mass to mock God
@@ -869,7 +898,10 @@
 * Needles pricked preborn child (traumatizes both mother and baby)
 * Abandonment or frightening experiences during pregnancy.
 
+
 #### Premature births and their impact on Illuminati trauma and breeding practices.
+
+**Foundation Step 2: Premature Births and Trauma**
 
 **Importance of Premature Births**
 - Approx. 7-8% of live births are premature (Fenaroff, 1972)
