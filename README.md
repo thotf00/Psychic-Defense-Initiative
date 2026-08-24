@@ -53,6 +53,7 @@ One might get encouraged to take some psychic action which you know is wrong, bu
 4. They seduce people with psychic sex that's usually nasty gross and nothing like lovemaking.
 5. Apparently automated, very little genuine communication.
 6. It often boils down to bullying and intimidation.
+7. Tell you false stories, gain power by convincing you a story is real, but only because they convince themselves this gives them power, there is no real power in lying to someone, they just make up anything they want to give self power (mental masturbation).
 
 ## Tactics and Techniques 
 Most Commonly, they promise future pleasures or pain.
@@ -66,6 +67,8 @@ Demonstrated across sense-modalities
 - Lust
 - Greed
 - Anger
+- Interest
+- Plausibility
 
 ### Technique
 #### Direct
@@ -78,6 +81,8 @@ Demonstrated across sense-modalities
 - Intimidate
 - Insult
 - Repetitive Stupidity
+- Deception
+- Lies
 
 #### Indirect
 - Alt accounts
@@ -92,11 +97,19 @@ These tricksters may provide others false accounts of you, just as they may prov
 - False Thought Impressions
 - False Memory.
 
-We remain vulnerable to these false accounts, to the extent which we have under-processed trauma, and under-reconciled sin.
+## Who is vulnerable?
+
+We remain vulnerable to these false accounts, to the extent which we have under-processed trauma, under-reconciled sin.
 
 Others may be held under the sway of these false communications for the same reasons.
 
 To the extent which one is bound by these beings, memory is malleable and easily re-configured.
+
+They also seek people of power to coerce into giving them power, or to fool into playing into a narrative to use and steal power from others.
+
+Not only sin and trauma, but being a person of power makes you vulnerable.
+
+Furthermore, innocence makes us vulnerable, since we are more easily swayed to their purposes when innocent.
 
 ## Goals
 ### My Goals
