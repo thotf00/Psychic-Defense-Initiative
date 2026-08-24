@@ -97,6 +97,8 @@ These tricksters may provide others false accounts of you, just as they may prov
 - False Thought Impressions
 - False Memory.
 
+## Who is vulnerable?
+
 We remain vulnerable to these false accounts, to the extent which we have under-processed trauma, under-reconciled sin.
 
 Others may be held under the sway of these false communications for the same reasons.
@@ -106,6 +108,8 @@ To the extent which one is bound by these beings, memory is malleable and easily
 They also seek people of power to coerce into giving them power, or to fool into playing into a narrative to use and steal power from others.
 
 Not only sin and trauma, but being a person of power makes you vulnerable.
+
+Furthermore, innocence makes us vulnerable, since we are more easily swayed to their purposes when innocent.
 
 ## Goals
 ### My Goals
