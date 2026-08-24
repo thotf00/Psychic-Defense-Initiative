@@ -1,234 +1,42 @@
 # The Illuminati Formula to Create  Mind Controlled Slave Fritz Springmeier 1996
 
-## Table of Contents
+> **Overview:**
+> - Recipe for creating Monarch mind-controlled slaves using various techniques
+> - Trauma-based, multi-step process
+> - Combination of methods makes it highly effective and difficult to break
+> 
+> **Testimony by Edward Hunter:**
+> - Witnessed before U.S. Congressional House Committee on Un-American Activities in 1958
+- Brainwashing techniques discovered in past thirty years through clinical procedures
+> - Elements of brainwashing: hunger, fatigue, tension, threats, violence, drugs, hypnosis (not all alone can be called brainwashing)
+> 
+> **Mind Control in the U.S.**:
+> - Hunter testified about Red Chinese threat but mind control was being done in the US
+> - Programmers used cover of "National security"
+
+
+## Contents
+- [INTRODUCTION](#introduction)
+	- [Dangers of Trauma-Based Mind Control and Its Historical Origins](#dangers-of-trauma-based-mind-control-and-its-historical-origins)
+	- [Making a Monarch Slave: Techniques and Secrets of handlers' notebooks](#making-a-monarch-slave-techniques-and-secrets-of-handlers-notebooks)
+	- [Exploring controversial claims about Monarch mind control, conspiracy, and demonology.](#exploring-controversial-claims-about-monarch-mind-control-conspiracy-and-demonology)
+	- [Programming and Alter Personas in Mind Control Systems: Alters, Beta, Councils, and Delta Teams](#programming-and-alter-personas-in-mind-control-systems-alters-beta-councils-and-delta-teams)
+- [CHAPTER 1 THE SELECTION AND PREPARATION OF THE VICTIM](#chapter-1-the-selection-and-preparation-of-the-victim)
+- [CHAPTER 2 THE TRAUMATIZATION AND TORTURE OF THE VICTIM](#chapter-2-the-traumatization-and-torture-of-the-victim)
+- [CHAPTER 3 THE USE OF DRUGS](#chapter-3-the-use-of-drugs)
+- [CHAPTER 4 HYPNOSIS](#chapter-4-hypnosis)
+- [CHAPTER 5 THE SKILL OF LYING THE ART OF DECEIT](#chapter-5-the-skill-of-lying-the-art-of-deceit)
+	- [The Deception of Billy Graham](#the-deception-of-billy-graham)
+	- [External  Internal Deception](#external--internal-deception)
+- [CHAPTER 6 THE USE OF ELECTRONICS AND ELECTRICITY](#chapter-6-the-use-of-electronics-and-electricity)
+- [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-science-of-structuring)
+- [CHAPTER 8 THE SCIENCE OF BODY MANIPULATION  AND PROGRAMMING](#chapter-8-the-science-of-body-manipulation--and-programming)
+- [CHAPTER 9 THE SCIENCE OF MIND MANIPULATION BY PSYCHOLOGICAL PROGRAMMING](#chapter-9-the-science-of-mind-manipulation-by-psychological-programming)
+- [CHAPTER 10 USING SPIRITUAL THINGS TO CONTROL A PERSON](#chapter-10-using-spiritual-things-to-control-a-person)
+- [CHAPTER 11 THE SCIENCE OF INTERNAL CONTROLS](#chapter-11-the-science-of-internal-controls)
+- [CHAPTER 12 THE SCIENCE OF EXTERNAL CONTROLS](#chapter-12-the-science-of-external-controls)
+	- [MIND CONTROL CODES](#mind-control-codes)
 
-**Introduction**
-- Book detailing the process of creating a mind controlled slave using various sciences
-
-**I. The Selection & Preparation of the Victim**
-*A. Genetics & dissociative abilities:*
-  - Discussion on genetic predisposition and natural ability for dissociation in victims
-
-*B. Availability:*
-  - Explanation of how victims become available for selection
-
-*C. Physical & Mental requirements:*
-  - Description of physical and mental prerequisites for mind control programming
-
-*D. List of organizations carrying out programming:*
-  - Names and descriptions of groups involved in creating mind controlled slaves
-
-*E. 4 foundational steps for programming:*
-  1. Spiritual requirements, Moon Child ceremonies, traumatization in vitro
-  2. Trauma by premature birth
-  3. Love bombing/love bonding
-  4. Severing the "core" of the mind
-
-*F. Step 1. Spiritual requirements, Moon Child ceremonies, traumatization in vitro:*
-  - Discussion on spiritual manipulation and abuse during childhood
-
-*G. Step 2. Trauma by premature birth:*
-  - Explanation of how premature birth leads to mind control
-
-*H. Step 3. Love bombing/love bonding:*
-  - Description of techniques used for love bombing and creating false attachments
-
-*I. Step 4. Severing the "core" of the mind:*
-  - Discussion on splitting the victim's personality and separating their core identity
-
-*J. Further considerations:*
-  - Additional factors in creating a mind controlled slave
-
-**II. The Traumatization & Torture of the Victim**
-*A. A site for torture of children, NOTS China Lake:*
-  - Description of a specific site used for child torture and mind control programming
-
-*B. What trauma does, the creation of PTSD & DID (MPD):*
-  - Explanation of how trauma leads to dissociative identity disorder (DID) and post-traumatic stress disorder (PTSD) in victims
-
-*C. How the torture is carried out, types of trauma:*
-  - Description of various methods used for torturing and traumatizing victims
-
-*D. How MPD works:*
-  - Discussion on how dissociative identity disorder (MPD) functions in mind controlled slaves
-
-*E. The Core:*
-  - Explanation of the concept of the "core" and its importance in mind control programming
-
-*F. The Anchoring Experience:*
-  - Description of techniques used to anchor traumatic memories and experiences in victims' minds
-
-**III. The Use of Drugs**
-*A. A list of drugs used:*
-  - Various medications and substances used in mind control programming, with brief descriptions
-
-*B. A brief history of use:*
-  - Background information on the use of drugs for mind control purposes
-
-*C. Applications for drugs to control a slave:*
-  - Discussion on how drugs are used to manipulate and control victims
-
-**IV. The Use of Hypnosis**
-*A. Dissociation, trance, & its historical use:*
-  - Explanation of hypnosis, dissociation, and trance states, with historical context
-
-*B. How to program with hypnosis:*
-  - Techniques for using hypnosis to create mind controlled slaves
-
-*C. How to boost creativity of victim with hypnosis:*
-  - Discussion on enhancing victims' creative abilities through hypnosis
-
-*D. Keeping the mind dissociative:*
-  - Description of techniques for maintaining a dissociative state in victims' minds
-
-*E. Keeping the mind in a programming state:*
-  - Explanation of methods to keep victims in a state receptive to programming
-
-*F. Hypnotic triggers & cues:*
-  - Discussion on using triggers and cues to activate specific responses in victims
-
-*G. Hypnosis in programs & other uses:*
-  - Various applications of hypnosis within the mind control system
-
-**V. The Skill of Lying, The Art of Deceit**
-*A. Overview:*
-  - Importance of lying and deception in mind control programming
-
-*B. The use of fiction:*
-  - Description of how fictional stories are used to manipulate victims
-
-*C. The use of lies externally, incl. covers and fronts:*
-  - Explanation of using false identities and stories to hide the true nature of the programming
-
-*D. The use of internal deceptions, incl. the art of hiding things in a system:*
-  - Techniques for creating hidden compartments within victims' minds
-
-**VI. The Use of Electricity & Electronics**
-*A. For torture:*
-  - Description of using electrical shock and other electronic forms of torture on victims
-
-*B. For memory deletion:*
-  - Explanation of how electricity is used to erase memories from victims' minds
-
-*C. For implanting thoughts:*
-  - Discussion on how electric stimulation can be used to implant thoughts and ideas in victims
-
-*D. Electronic communication & control:*
-  - Description of techniques for using electronic devices to monitor, communicate with, and control victims
-
-**VII. Engineering & Structuring Of An MPD System**
-*A. Structuring of MPD worlds:*
-  - Explanation of creating separate "worlds" within a dissociative identity disorder (MPD) system
-
-*B. The creation of roles:*
-  - Description of how different "parts" or alters are given specific roles and identities
-
-*C. Building in layered defenses:*
-  - Discussion on adding multiple layers of protection to the mind control system
-
-*D. Building backup systems:*
-  - Explanation of creating contingency plans within the MPD system
-
-**VIII. Body Manipulation & Programming**
-*A. Scarring the brain stem:*
-  - Description of how scars on the brainstem can be used for mind control purposes
-
-*B. Split brain work:*
-  - Discussion on manipulating the split-brain condition to create dissociative identity disorder (MPD)
-
-*C. Medical technologies:*
-  - Explanation of how medical procedures and technologies are used in mind control programming
-
-*D. Histamines:*
-  - Description of using histamine injections for trauma responses and pain management
-
-*E. The use of body programs:*
-  - Discussion on creating body-based programs and triggers within the MPD system
-
-**IX. Mind Manipulation by Psychological Programming Methods: Behavior Modification, Psychological Motivation & NLP**
-*A. Observing a satanic family conditioning their children:*
-  - Description of how families use behavior modification techniques on children
-
-*B. Behavior modification, obedience training:*
-  - Explanation of how victims are trained to be completely obedient through behavioral conditioning
-
-*C. Isolation:*
-  - Discussion on isolating victims from the outside world to further control them
-
-*D. Repetition:*
-  - Explanation of repeating specific phrases, actions, or scenarios to reinforce programming
-
-*E. Psychological motivators, md. pride/needs/wants:*
-  - Description of using psychological motivators to manipulate and control victims
-
-*F. Neuro-linguistic programming:*
-  - Explanation of how neuro-linguistic programming (NLP) techniques are used in mind control programming
-
-*G. The inversion of pain & pleasure:*
-  - Discussion on reversing the experience of pleasure and pain to further manipulate victims
-
-**X. Spiritual Control Techniques, Possession, Trances, Etc.**
-*A. Using spiritual principles against a person:*
-  - Description of how spiritual principles are used against victims to control them
-
-*B. How the Monarch program miniturizes what is done on a large scale:*
-  - Explanation of how mind control techniques are adapted from larger spiritual practices
-
-*C. Dehumanization:*
-  - Discussion on how victims are dehumanized and treated as objects or animals
-
-*D. Fear:*
-  - Description of using fear to manipulate and control victims
-
-*E. The use of guilt, shame, ridicule & anger:*
-  - Explanation of using negative emotions to further traumatize and control victims
-
-*F. Teaching that the master is God:*
-  - Discussion on how victims are taught to see their abusers as all-powerful figures
-
-*G. Portals, Focal Points:*
-  - Description of using focal points or portals to access different parts of the mind control system
-
-*H. Vows & oaths:*
-  - Explanation of making victims swear allegiance and take oaths to their abusers
-
-*I. The use of demon possession, layering in, etc.*:
-  - Discussion on using demon possession as a means of control and manipulation within the MPD system
-
-*J. The misuse of Scripture:*
-  - Description of how religious texts are used out of context to further control victims
-
-*K. Theta programming:*
-  - Explanation of techniques for accessing and controlling the theta brain wave state in victims
-
-**XI. Internal Controls**
-*A. Teaching occult philosophies & ideologies:*
-  - Description of how occult knowledge is used to control and manipulate victims
-
-*B. Internal computers:*
-  - Explanation of creating an internal computer system within the MPD system
-
-*C. Internal hierarchies:*
-  - Discussion on creating internal power structures and layers of control within the mind control system
-
-**XII. External Controls**
-*A. Monitoring (Asset control):*
-  - Description of how victims are monitored and controlled from the outside
-
-*B. The art of blackmail:*
-  - Explanation of using blackmail as a means of further control over victims
-
-*C. Bribes:*
-  - Discussion on using bribes to manipulate and control victims
-
-*D. The Control of the Milieu:*
-  - Description of how the environment is used to reinforce programming and control victims
-
-*E. Bonding & twinning:*
-  - Explanation of techniques for creating bonds and connections between different parts or alters within the MPD system
-
-*F. Peer pressure:*
-  - Discussion on using peer pressure to further control and manipulate victims.
 
 ## INTRODUCTION
 
@@ -492,7 +300,7 @@
 - Infrequently used to denote the established social-economic-political system controlling the world (Network).
 
 
-### CHAPTER 1 THE SELECTION AND PREPARATION OF THE VICTIM
+## CHAPTER 1 THE SELECTION AND PREPARATION OF THE VICTIM
 
 **Multiple Personality/Dissociative Identity Disorder (MPD/DID)**
 - Definition: Dissociative parts of a single brain view themselves as separate persons
@@ -1242,7 +1050,7 @@
 * Previous chapter discusses how trauma & fear serve as base of mind control.
 
 
-### CHAPTER 2 THE TRAUMATIZATION AND TORTURE OF THE VICTIM
+## CHAPTER 2 THE TRAUMATIZATION AND TORTURE OF THE VICTIM
 
 **Monarch Mind Control: The Traumatization and Torture of the Victim**
 
@@ -1744,7 +1552,7 @@
 - Historically, Druids gave up paganism for truth of Christ but now neo-paganism returns to what they gave up two thousand years ago.
 
 
-### CHAPTER 3 THE USE OF DRUGS
+## CHAPTER 3 THE USE OF DRUGS
 
 **The Use of Drugs in Mind Alteration**
 
@@ -2092,7 +1900,7 @@
 - Drugs further reinforce power over individuals when coupled with other mind-control methods.
 
 
-### CHAPTER 4 HYPNOSIS
+## CHAPTER 4 HYPNOSIS
 
 **Hypnosis: Understanding the Basics**
 
@@ -2580,7 +2388,7 @@
 * Use of multiple languages as coding systems within the Monarch System.
 
 
-### CHAPTER 5 THE SKILL OF LYING THE ART OF DECEIT
+## CHAPTER 5 THE SKILL OF LYING THE ART OF DECEIT
 
 **Science No. 5: The Skill of Lying, The Art of Deceit**
 
@@ -4582,7 +4390,7 @@
 - They use the best covers as fronts, including fiction, religious fronts, traveling entertainment, and national defense
 
 
-### CHAPTER 6 THE USE OF ELECTRONICS AND ELECTRICITY
+## CHAPTER 6 THE USE OF ELECTRONICS AND ELECTRICITY
 
 **The Use of Electronics and Electricity in the Monarch Program**
 
@@ -4841,7 +4649,7 @@
 * **Control and Ethical Concerns**: Powerful individual and mass mind control via electronic means; who will control those controlling these electronic means? American & European people have been mostly complacent about these developments so far.
 
 
-### CHAPTER 7 THE SCIENCE OF STRUCTURING
+## CHAPTER 7 THE SCIENCE OF STRUCTURING
 
 **The Science of Structuring**
 
@@ -6535,7 +6343,7 @@
 - These manuals are used for programming helpless victims of Monarch Mind Control
 
 
-### CHAPTER 8 THE SCIENCE OF BODY MANIPULATION  AND PROGRAMMING
+## CHAPTER 8 THE SCIENCE OF BODY MANIPULATION  AND PROGRAMMING
 
 **The Science of Body Manipulation and Programming**
 
@@ -7057,7 +6865,7 @@
 - Special underwater tools: hydraulic underwater saw.
 
 
-### CHAPTER 9 THE SCIENCE OF MIND MANIPULATION BY PSYCHOLOGICAL PROGRAMMING
+## CHAPTER 9 THE SCIENCE OF MIND MANIPULATION BY PSYCHOLOGICAL PROGRAMMING
 
 **Observations of a Satanic Family Carrying Out Monarch Conditioning on Their Children**
 
@@ -7342,7 +7150,7 @@
 - Split-brain programming takes this contrast into account.
 
 
-### CHAPTER 10 USING SPIRITUAL THINGS TO CONTROL A PERSON
+## CHAPTER 10 USING SPIRITUAL THINGS TO CONTROL A PERSON
 
 **The Spiritual Foundation for Programming**
 
@@ -8923,7 +8731,7 @@
 - Programmers use infinity sign to symbolize the bondage loops they construct.
 
 
-### CHAPTER 11 THE SCIENCE OF INTERNAL CONTROLS
+## CHAPTER 11 THE SCIENCE OF INTERNAL CONTROLS
 
 **Occult Philosophies and Internal Controls**
 
@@ -9474,7 +9282,7 @@
 - Encourage reconnection of core self on its own.
 
 
-### CHAPTER 12 THE SCIENCE OF EXTERNAL CONTROLS
+## CHAPTER 12 THE SCIENCE OF EXTERNAL CONTROLS
 
 **The Science Of External Controls - Monitoring (Asset Control)**
 
