@@ -21,7 +21,11 @@ The "Psychic Terrorists" have been programmed by these techniques, some of them 
 
 ## Fritz ~~Illuminati~~ \[Peckerwood] Mind Control Formula
 
-By using this formula, a victim is repeatedly raped and tortured, commonly beginning before birth, shattering the consiousness relentlessly over years, under-which their mind becomes a blank slate which can repeat instructions flawlessly without fail. After being raped and tortured throughout a meticulous process, the victim is programmed with a series of personalities and backup personas which, being disturbed, or at the command of their programmer, can be changed on demand.
+By using this formula, a victim is repeatedly raped and tortured, commonly beginning before birth, shattering the consiousness relentlessly over years, under-which their mind becomes a blank slate which can repeat instructions flawlessly without fail. 
+
+Not necessarily that individuals are programmed from birth, but a common pattern found in this area is people who dominate women sexually. This can be stretched over years and the same effects be transmitted as with those programmed from birth. Perhaps not as perfectly "sticky".
+
+After being raped and tortured throughout a meticulous process, the victim is programmed with a series of personalities and backup personas which, being disturbed, or at the command of their programmer, can be changed on demand.
 
 ## MAJOR PROBLEMS
 Besides the obvious hellish work which ruins the programmer for any life which could be considered human... 
@@ -81,7 +85,7 @@ After bailing her out of jail (for stealing feminine products which she never wo
 
 I have heavily reduced the content from this summary, as much of it is very specific types of programming based on popular media... useful for someone who plans on programming, not as useful for those just trying to understand the relationship between this work and what's happening in the Gulf.
 
-Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-science-of-structuring) in recognizing the personality shifts found within individuals having been programmed. Not necessarily that individuals are programmed from birth, but a common pattern found in this area is people who dominate women sexually. This can be stretched over years and the same effects be transmitted as with those programmed from birth. Perhaps not as perfectly "sticky".
+Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-science-of-structuring) in recognizing the personality shifts found within individuals having been programmed. 
 
 ### Contents - Abridged Summary
 - [Introduction](#introduction)
