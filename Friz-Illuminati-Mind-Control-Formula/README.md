@@ -79,7 +79,6 @@ After bailing her out of jail (for stealing feminine products which she never wo
 
 > "She's my property, I OWN HER"
 
-
 <a href="Florida-Falling-into-Gulf/Lilly-Scamheld-2022-26.jpeg"><img src="Florida-Falling-into-Gulf/Lilly-Scamheld-2022-26.jpeg"  style="display: block; width: 50%;"></a>
 
 ## Illuminati Mind Control Formula -Fritz- Abridged Summary
@@ -176,12 +175,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Can be triggered by internal or external stimuli, or Programmers' codes
 - Observable as alter personalities taking the body
 
-**Monarch Mind-Control Programming**
-- Selection of Victims:
-  - **A. Genetics and Disassociative Abilities**: Monarch butterfly example showed that knowledge can be passed genetically
-  - **B. Availability**: Finding suitable victims for programming
-  - **C. Mental and Physical Features**: Not specified in provided text
-
 #### The Illuminati's creation and use of mind-controlled slaves through trauma and blackmail.
 
 **Illuminati Families and European Occultists**
@@ -207,22 +200,13 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 		- Visible torture scars
 * Parents blackmailed into cooperating:
 	+ Pedophile and murderer parents warned of long prison terms
-
-#### Monarch slaves: Trauma-based mind control in Illuminati hierarchy and CIA operations.
-
-**Characteristics of Men Preferred by Programmers**
-- Weak-willed men who cannot handle the consequences of committing their entire life to one profession
-- Buckle under threats, removing them from ministry or other careers
-
-**Fathers Preferred for Abusing Children**
-- Pedophiles with no conscience
-
+    + Weak-willed men who cannot handle the consequences of committing their entire life to one profession
+        - Buckle under threats, removing them from ministry or other careers
 * Hierarchy Monarch Slaves and Non-hierarchy Monarch Slaves Not programmed the same way
 
 **Programming Sites:**
 - State mental hospitals (e.g., McGill Psychiatric Training Network)
 - NASA in Huntsville, AL; The Presidio, CA; NOTS at China Lake, CA
-- Fronts for Illuminati to carry out mind control programming without detection
 
 #### Brainwashing techniques for creating intelligent and skilled sexual slaves.
 - **Importance of Proper Brain Development**: Interacting with the child to develop areas of the brain that are important, such as recognition of identical faces, matching items, and enhancing senses for building mirror images
@@ -232,9 +216,7 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - **Building a Solid Structure**
   - The importance of having a solid foundation and knowing the natural lay of the land (the victim's mind) to build a strong, structured house
 
-#### Occult Groups and Programming: Moon Children, Rituals, and Demonization.
-
-**Illuminati's First Four Stages of Child Programming:**
+#### Illuminati's First Four Stages of Child Programming:
 
 **Stage 1: Preparation by Spiritual Preparations & In Utero Traumatization - The Moon Children**
 - Initial ceremonies and in utero traumatization for demonizing a fetus (Moonchild rituals)
@@ -281,7 +263,7 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Baby rigidly taught obedience
 - Taught not to cry using tonal changes, index finger gestures, and approval for non-crying.
 
-**Illuminati Child Rearing Practices:**
+#### Illuminati Child Rearing Practices:
 **Foundation Step 1: Love Bombing and Dissociation**
 - **No spanking in first year and a half**
 - Allowed relationship with programmer(s) during first 18 months
@@ -306,9 +288,7 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Child can't reconcile the loving caretaker and the worst abuser
 - Person trusted and feared are one and the same
 
-#### Trauma and dissociation: Hidden cores and protected essences in mind manipulation
-
-**Background:**
+**Trauma and dissociation: Hidden cores and protected essences in mind manipulation**
 - Intermittent electric shock, overwhelming senses, sleep deprivation, and drugs create a dissociative base to split the core (1-3 years old)
 - Original mind splits off a part and walls it up with amnesia barriers
 - No single core in traumatized individuals
@@ -318,20 +298,9 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Not an alter, but an essence hidden by programmers
 - Protected by victim's mind to avoid contamination and violation
 
-#### Mind fragments and initial splits in dissociative identity disorder
-
 ## CHAPTER 2 THE TRAUMATIZATION AND TORTURE OF THE VICTIM
 
-**Monarch Mind Control: The Traumatization and Torture of the Victim**
-
-- Successful mind control programming based on creating dissociative personality disorders (alters)
-
-**China Lake Facility at NOTS (Naval Weapons Center)**
-- **Small batch of babies**: Lots of 1,000 babies was a small group
-- Woodpecker Grids: Cages hot-wired with electric shock for mind splitting and multiple personality development
-- Trauma: Brutal rape after Woodpecker Grid experience
-
-#### Complex Trauma and Multiple Personality Development: Ongoing Abuse and Brain Complexity.
+**Successful mind control programming based on creating dissociative personality disorders (alters)**
 
 **Understanding Multiple Personality Systems**
 - People rarely discover entire systems
@@ -347,8 +316,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Programmed to isolate from healthy relationships
 - Increases feelings of helplessness
 
-**Trauma and Mind Control Techniques:**
-
 **Dissociation and Reversal of Brain Functions:**
 - Mind begins to dissociate from primordial brain functions
 - Pain is reinterpreted as pleasure (Beta alters or Beta models)
@@ -357,8 +324,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Soldiers can wall off traumatic events with amnesia
 - Children programmed under Monarch trauma-based mind control also dissociate
 - Split personality occurs when the mind says "This isn't happening to me, it's happening to someone else"
-
-#### Memory and hormones shape autobiographical memories for different alters in DID system.
 
 **Interpretation of Past Events:**
 * Dissociated memory requires constant reinterpretation
@@ -371,7 +336,7 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 
 #### Trauma and incest as foundational elements for mind control programming
 
-**Brain's Memory Capabilities**
+**Brain's Enhanced Memory Capabilities**
 - No limit to memory
 
 **Trauma and Programming Anchors**
@@ -385,25 +350,21 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 
 ## CHAPTER 3 THE USE OF DRUGS
 
-**Pharmacology and Mind-Altering Drugs**:
-- Pharmacology has given Programmers a vast array of mind-altering and body-altering drugs
-
 **Drugs Used for Mind Control**:
-  - **2-GB (CBR)**: Strong hallucinogenic, helps telepathic communication
-  - **2-CT2**: Produces dark, earthy visual patterns
-  - **Acetylcholine**: Used for EEOM, EDOM, and blocking memory
-  - **Adrenaline**
-  - **Aktecton**: Succinylcholine, a strong muscle relaxant that makes one feel suffocated
-  - **Anhalamine**, **Anhalidine**, **Anhaline**, **Anhalonidine**, **Anhalonine**, **Anhalonium** (possible effects unknown)
-  - **Aphrodisiacs**: Used for sexual manipulation by programmers
-  - **BZ (designer drug)**: Produces amnesia, ten times more powerful than LSD
-  - **Bambusa**, **Baradanga**: Truth serum that makes people willing to follow any command
-  - **Barbiturate**
-  - **Belladonna**: Traditional drug of witches since the middle ages
-  - **Benzohedrine (Benzedrene)**: Stimulant used with other drugs
-  - **Butabarbital sodium**: Hypnotic sedative
-  - **Cannabidiol**, **Can nabinol**: Cannabis (sedative, changes in perception, distorted time)
-- **Cannabol**
+- **2-GB (CBR)**: Strong hallucinogenic, helps telepathic communication
+- **2-CT2**: Produces dark, earthy visual patterns
+- **Acetylcholine**: Used for EEOM, EDOM, and blocking memory
+- **Adrenaline**
+- **Aktecton**: Succinylcholine, a strong muscle relaxant that makes one feel suffocated
+- **Anhalamine**, **Anhalidine**, **Anhaline**, **Anhalonidine**, **Anhalonine**, **Anhalonium** (possible effects unknown)
+- **Aphrodisiacs**: Used for sexual manipulation by programmers
+- **BZ (designer drug)**: Produces amnesia, ten times more powerful than LSD
+- **Bambusa**, **Baradanga**: Truth serum that makes people willing to follow any command
+- **Barbiturate**
+- **Belladonna**: Traditional drug of witches since the middle ages
+- **Benzohedrine (Benzedrene)**: Stimulant used with other drugs
+- **Butabarbital sodium**: Hypnotic sedative
+- **Cannabidiol**, **Cannabinol**: Cannabis (sedative, changes in perception, distorted time)
 - **Carboline**
 - **Chloral hydrate (Noctec)**
   - Used as a hypnotic sedative
@@ -460,7 +421,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 ## CHAPTER 4 HYPNOSIS
 
 **Hypnosis: Understanding the Basics**
-
 **Levels of Consciousness:**
 - Five levels to subconscious: light trance to deep sleep
 - Difficulty identifying exact state of mind
@@ -483,16 +443,9 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 **Healing Abilities**:
 - Average healing rate is 3 times quicker under hypnosis than without
 
-**Kept a National Secret**:
-- Research could be helping humanity instead of controlling it
-
 **Programmer's Role**:
 - Through hypnosis/fear, the programmer becomes the "conductor to help bring order out of chaos"
 - To regain control of their life, the multiple must re-establish communication between different parts and get "internal people to harmonize their music of life"
-
-**Hypnosis Induction**:
-- Good programmers do not need formal hypnosis induction
-- Monarch slaves are conditioned to respond to numbers being counted and fingers being snapped
 
 **Hypnotism and Ancient Practices:**
 - Masonic lodges used hypnosis during initiation ceremonies (electric shock, deprivation of metals)
@@ -520,7 +473,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Successfully kept some deceptions active for decades or centuries
 
 **Wizard of Oz as Mind-Control Script:**
-
 **Background:**
 - Dorothy's interactions with characters in The Wizard of Oz used as keys for personality switching and control
 - Handlers use cues based on the book series, not just the movie
@@ -544,17 +496,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Spirits of Goetia are portions of the human brain, and their seals help stimulate or regulate those parts through the eye (source: The Lesser Key, Solomon Goetia)
 - Names of Gods act as vibrations to establish control over brain in general, detail, and special portions (a, b, c)
 - Perfumes aid this process by controlling a large area; Qabalistic formula enables spelling out Spirit's name using letters of the alphabet (source: The Lesser Key, Solomon Goetia).
-
-#### Monarch programming: hidden intelligence operations involving manipulated identities and mind control.
-
-**Monarch Programming and Intelligent Agents:**
-- **Examples of Monarch Programmers**: housewife, deaf mute computer programmer, international spy with different identities and appearances, apparently dumb blonde
-- **Functioning as Agent Provocateurs**: joining groups to lead them to harm
-- **Types of Monarch Slaves**: used for limited intelligence work without suspicion, notional agents with elaborate cover histories and supporting documents
-- **Intelligence Agencies' Use of Monarch Slaves**: stealing strength from sincere organizations by creating notional rivals that fold under scandal
-- **Therapeutic Community and Help Lines**: heavily infiltrated by therapists and groups posing as helpers but are fronts for Monarch programming
-- **Christian Groups Claiming to Help SRA Victims**: some are fronts for Monarch programming
-- **Family Background**: father, mayor of a city in Pennsylvania, part of Illuminati, established drug hotline with his people to eliminate competition. Intelligence agencies hide their drug trafficking and criminal activities using the War on Drugs as a cover.
 
 ### The Deception of Billy Graham
 
@@ -606,24 +547,23 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - **ELF and VLF electro-magnetic waves** used for thought control
 - **Harmonics and sound waves** manipulate RNA covering of neuron pathways to subconscious
 - **Harmonic generators (ether-wave)** imbed detailed commands linked to audible triggers
-- Allows slaves to be controlled by trigger words with no negative connotation
-- Examples: "Mr. Postman wait and see" (Marionette command)
-- Four types of brain waves: alpha, beta, delta, theta
-- Monarch slaves named after these four brain waves
+  - Allows slaves to be controlled by trigger words with no negative connotation
+  - Examples: "Mr. Postman wait and see" (Marionette command)
+  - Four types of brain waves: alpha, beta, delta, theta
+  - Monarch slaves named after these four brain waves
 - High level Illuminati models may have programming for all types of brain waves
 - CIA labels their harmonic-created total Mind-controlled slaves:
-  - Bravo 2 series: men programmed to run Beast computers
-  - Delta series: espionage and assassination models
-  - Juliet series: sexual mind controlled slaves
-  - Kilo 5 series: military espionage
-  - Michael 1 series: CIA agents under total mind-control
-  - Operation Greenstar: Mind-control project to create UFO abduction scenarios
+  - **Bravo 2 series**: men programmed to run Beast computers
+  - **Delta series**: espionage and assassination models
+  - **Juliet series**: sexual mind controlled slaves
+  - **Kilo 5 series**: military espionage
+  - **Michael 1 series**: CIA agents under total mind-control
+  - **Operation Greenstar**: Mind-control project to create UFO abduction scenarios
 - High level programming in the 1980s and 1990s no longer done with human programmers, but by programmed machines using drugs, electricity, and harmonics.
 
 ## CHAPTER 7 THE SCIENCE OF STRUCTURING
 
 **The Science of Structuring**
-
 **Structuring of MPD Worlds**:
 - The purpose of mind-control is to build a **System** within the mind that is a human robot
 - Integration of front alters was a ruse to allow therapists to think the patient was healed
@@ -686,10 +626,10 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
   - Structures reminiscent of geographical lands (e.g., Oz) used as templates
   - Engineered by skilled specialists, but lesser programmers could assist in assembly
   - Relationships between alters:
-	* Two-way amnesia: neither alter aware of each other's existence
-	* One-way amnesia: one alter knows another, but reverse is not true
-	* Co-presence: alters share body and produce strange behaviors
-	* Co-conscious: two alters are aware of each other's thoughts
+    * Two-way amnesia: neither alter aware of each other's existence
+    * One-way amnesia: one alter knows another, but reverse is not true
+    * Co-presence: alters share body and produce strange behaviors
+    * Co-conscious: two alters are aware of each other's thoughts
   - No-talk walls built to prevent communication between certain alters.
 
 **Building an Illuminati Monarch Slave System:**
@@ -703,7 +643,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Scattered throughout time
 - Difficulty recognizing self
 - Uncertainty about existence
-- Fear of misleading others
 
 **Description of Internal Structuring:**
 - Multiple systems within one mind
@@ -781,7 +720,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 * Dissociated part of the mind, developed by programmers as complete personality
 * Recorded on charts with cult name, front name, alpha-numeric pull up code, and grid number.
 
-
 #### Mind fragments and shadow alters in dissociative identity disorder.
 
 **Background:**
@@ -833,7 +771,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 
 **Main Alter's Memory Recovery**
 - **Memory recall triggers**: Programmer says memory code three times or an event occurs that activates the memory, causing the main alter to remember and break the circle and mirrors.
-
 
 **The Main Alter's Relationship with the Programmer/Master**
 - **Transferring Anger**: The Main alter is given a script to totally love the Programmer/Master, but its ability to direct anger is lost due to dissociation
@@ -893,9 +830,7 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - **Warrior & Infiltration Alters**: protect and infiltrate, in some systems.
 
 
-#### Dissociative identity disorder and Illuminati programming: Christian alters and clones.
-
-**Christian Front Alters**
+#### Christian Alters and Clones.
 - Most Illuminati Systems have **Christian front alters**
 - Early splits around 2 years of age are given the opportunity to genuinely accept **Christ**
 - Two things will be done:
@@ -1026,7 +961,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Computers can dynamically control and synchronize all necessary coordination to give someone a virtual reality experience
 - Impossible for victim to distinguish reality from the trip
 
-
 **Memory Storage and Binding Process**
 * Memory stored holographically
 * No single alter exists in one spot in the mind
@@ -1096,7 +1030,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Memories attached to certain triggers can evoke the same emotional response repeatedly
 - The association between a memory and its corresponding feeling creates reinforcement for the association.
 
-
 **Anchors:**
 - Stimulus linked to and triggers a physiological or emotional state
 - Naturally occurring examples: favorite childhood smells, alarm clock
@@ -1113,9 +1046,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Practiced mentally
 - Expectations can become self-fulfilling prophecies
 - NLP teaches various learning methods
-
-
-**Understanding Programming in Mind Control: Power Words, Reversals, Puns, and The Mind's Natural Alarm Clock**
 
 **Power Words, Reversals, and Puns**:
 - In NLP (Neuro-Linguistic Programming), 7 senses are considered: sight, sound, internal kinetics, emotions.
@@ -1175,8 +1105,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Lies lead to bondage; mirror images are a form of lying
 - Victims of mind control slavery often trapped in performance loop
 - Neglecting spiritual dimensions of slavery leads to incomplete understanding.
-
-**Monarch Mind Control: Heartless Alters and Fear**
 
 **Heartless Alters:**
 - No heart or feelings due to removal by Programmers
@@ -1273,16 +1201,13 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 **Occult Practices:**
 - Voodoo (Vaudou): component in trauma-based mind control, considered both good and evil
   * JuJu: African magical practice with various names and practices
-	- Babalawo: priests who rule religious lives of a village
-	- Esu: West African name for Satan
-	- Zombie: term originating from Voodooism
+    - Babalawo: priests who rule religious lives of a village
+    - Esu: West African name for Satan
+    - Zombie: term originating from Voodooism
   * Objects given in sealing vows used against offenders through voodoo magic if broken
 - Umbanda (Brazilian satanism): openly has satanic rituals on Copacabana Beach.
 
-**Voodoo in Haiti:**
-- Majority of population practices Voodoo or Vaudou (90%)
-- Possession behavior is learned and not abnormal in Haiti
-
+#### PSI: Telepathy, OBE, Astral Projection
 **Telepathy in the Illuminati:**
 * Closely guarded secret
 * Used by Delta teams for coordination and safety
@@ -1295,9 +1220,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 * Rare to achieve without aid
 * Sound waves can assist in astral projection
 * Occurs at Focus 10 state of mind.
-
-
-#### Astral projection, brain waves, ELF waves, telepathy, and occult practices.
 
 **Astral Projection and Theta Waves**
 * Brain works off of waves less than 16 Hz (theta/delta frequency), which cannot be heard by human ear
@@ -1318,13 +1240,13 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 
 **The Auric Body and Telepathic Points**:
 - **7 points in the Auric Body**: Not on the physical body, but on the etheric (astral energy) body
-	- Top of head
-	- Third eye
-	- Throat
-	- Chest-heart area
-	- Solar plexus
-	- Lower abdomen
-	- Genital area
+    - Top of head
+    - Third eye
+    - Throat
+    - Chest-heart area
+    - Solar plexus
+    - Lower abdomen
+    - Genital area
 - **Nadis**: Streams of energy that carry astral energy to the sender's mind focus
 - **Recipient feels this energy in the solar plexus**
 - **Throat area** is said to be active during telepathy when sender and receiver are in harmony
@@ -1368,18 +1290,6 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Recommended for members with magical ability hampered by flaws in their balance factor
 - Explains the Gurdjieff approach to the concept better than G. himself was able to do
 - Important link between Gurdjieff, mind-control, MPD, etc., needs further investigation
-
-**Creation of Warrior Monks**:
-- Frank Burns aimed to create a warrior monk
-- Lt. Col. Jim Channon proposed the idea of warrior monks in Delta Forces
-- Channon visited over 130 New Age groups in California for "social experimentation"
-- Idea of warrior monks repeated in Nazi S.S., with 3,000 going through religious initiations
-- Nazi initiation aimed to harness the force of the Vril
-
-**Occult Military Units**:
-- Burns and his Task Force Delta generated the First Earth Battalion
-- First Earth Battalion is an **occult military unit trained in martial arts and witchcraft**
-- Members are given an **occult initiation** with an oath to contribute to self-development, generate evolutionary conspiracies, and create high commando groups for the New World Order
 
 #### Creating self-regulating mind control slaves through manipulation and programming of dissociated alters.
 
@@ -1440,13 +1350,12 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 * **Violet-Purple**: Front alters, small child alters placed into boxes
 * **Clear**: Shell alters to deceive the outside world
 
-#### Monarch System: Mind manipulation through computers and programming codes.
+#### Mind manipulation through computers and programming codes.
 
-**Monarch System and Illuminati Programming**
-- **Similarities between Monarch system and UNIX computer system:**
-  - Both serve as functional computers and internal systems for the mind
-  - Accessible through base or primal anchors
-  - Illuminati programmers can quickly reprogram slaves from lesser groups
+**Similarities between Monarch system and UNIX computer system:**
+- Both serve as functional computers and internal systems for the mind
+- Accessible through base or primal anchors
+- Illuminati programmers can quickly reprogram slaves from lesser groups
 
 **Monarch System Structure:**
 - Three main sections:
@@ -1467,21 +1376,18 @@ Most importantly is [CHAPTER 7 THE SCIENCE OF STRUCTURING](#chapter-7-the-scienc
 - Slaves can be quickly reprogrammed from lesser groups (CIA, Church of Satan, Mafia)
 - Illuminati programmers have extra knowledge for accessing base programming.
 
-
-#### Multiple Systems and Demonic Programming in Mind Control.
-
 **Components of the Controls**
 - **Master Computer**: central mechanism controlling the system
-- **All-Seeing Eye**: unspecified
-- **Compass**: unspecified
-- **Master Clock**: unspecified
+- **All-Seeing Eye**: Single Point of Awareness
+- **Compass**: 
+- **Master Clock**: Internal-Clock
 - **Quadrants**: tied together, structure of the System
 - **3-axis Matrixes/Hourglasses**: sections of these matrixes make up worlds
   - Backup worlds and mirror image worlds exist
   - Double or even more complex systems possible
   - Demonic doubles: demonic mirror images in the System
 
-**Programming through Stories and Media**
+#### Programming through Stories and Media
 - **Alice in Wonderland**, **The Wizard of Oz**, and **The Tall Book of Make Believe** used as "software" in a system
 - Taught how to create an internal world and its parts
 - Monarch programming scripts (TV shows & movies):
