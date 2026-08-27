@@ -12,7 +12,7 @@ Over time, the creations over-power their creators. and gain god-like powers tha
 
 ## Scammy Evil Faced Art
 
-Closely examining the art on his neck, you can see him creating an etheric personality, much in the same way that the personality is programmed in Fritz's method. 
+Closely examining the art on his neck, you can see the evolution of a programming journey, perhaps creating an etheric persona, perhaps mapping the programming of Lil, herself, much in the same way that the personality is programmed in Fritz's method. 
 
 <a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"  style="display: block; width: 50%;"></a>
 <a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"  style="display: block; width: 50%;"></a>
