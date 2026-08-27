@@ -26,7 +26,8 @@ Closely examining the art on his neck, you can see the evolution of a programmin
 
 ## Lilly ScamHeld
 
-![Lil-2-Nasty-Formation](Lilly-Scamheld-2022-26.jpeg) 
+
+<a href="Lilly-Scamheld-2022-26.jpeg"><img src="Lilly-Scamheld-2022-26.jpeg"  style="display: block; width: 50%;"></a>
 
 [Lilly-Scamheld-22-01.jpeg](Lilly-Scamheld-22-01.jpeg)
 [Lilly-Scamheld-22-11.jpeg](Lilly-Scamheld-22-11.jpeg) 

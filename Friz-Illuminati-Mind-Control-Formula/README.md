@@ -79,7 +79,8 @@ After bailing her out of jail (for stealing feminine products which she never wo
 
 > "She's my property, I OWN HER"
 
-![Lil-2-Nasty-Formation](Florida-Falling-into-Gulf/Lilly-Scamheld-2022-26.jpeg) 
+
+<a href="Florida-Falling-into-Gulf/Lilly-Scamheld-2022-26.jpeg"><img src="Florida-Falling-into-Gulf/Lilly-Scamheld-2022-26.jpeg"  style="display: block; width: 50%;"></a>
 
 ## Illuminati Mind Control Formula -Fritz- Abridged Summary
 
