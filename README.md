@@ -38,13 +38,15 @@ Because the tactics involve both direct, and indirect manipulation, one can neve
 - Inexperienced Dungeons and Dragons Players 
 - Anyhone with an extensive history with trauma
 - Those succeptible to manipulation by guilt, fear, shame, pride, or greed
+- Gifted individuals
+- Innocents
 
 ## Deceivers and Tricksters
-There are many deceivers and tricksters.. they use similar tactics and you never know if someone is for your good or not, regardless of how they present
+There are many deceivers and tricksters.. they use similar tactics and you never know if someone is for your good or not, regardless of how they present.
 
-Even they might not know if they are being tricked into helping or hurting you even worse is that if they have access to your consciousness, they are exposed to whoever you are connected to, and can even bait others in your vicinity, depending on skill level
+Even they might not know if they are being tricked into helping or hurting you even worse is that if they have access to your consciousness, they are exposed to whoever you are connected to, and can even bait others in your vicinity, depending on skill level.
 
-One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises depending on your vulnerabilities, these can have various impacts from bad to worse, if you know what i mean
+One might get encouraged to take some psychic action which you know is wrong, but convince you its ok in that context, or persuade you with false promises depending on your vulnerabilities, these can have various impacts from bad to worse.
 
 ### "Evil Ones" (aka: Fake Assed Illuminati):
 1. Gain power from and are addicted to torturing others as well as being "punished" by etheric violence.
@@ -83,6 +85,8 @@ Demonstrated across sense-modalities
 - Repetitive Stupidity
 - Deception
 - Lies
+- Induce Forgetfulness
+- Re-write memories at scale
 
 #### Indirect
 - Alt accounts
@@ -103,7 +107,7 @@ We remain vulnerable to these false accounts, to the extent which we have under-
 
 Others may be held under the sway of these false communications for the same reasons.
 
-To the extent which one is bound by these beings, memory is malleable and easily re-configured.
+To the extent which one is bound by these beings, or innocent to their workings, memory is malleable and easily re-configured.
 
 They also seek people of power to coerce into giving them power, or to fool into playing into a narrative to use and steal power from others.
 
